@@ -5,8 +5,8 @@ title: Kontakt
 ---
 ### Jak se objednat?
 
-* emailem na bara.misko@seznam.cz
-* nebo telefonicky na 773 876 114
+emailem na bara.misko@seznam.cz  
+nebo telefonicky na 773 876 114
 
 ### Kde mě najdete?
 
