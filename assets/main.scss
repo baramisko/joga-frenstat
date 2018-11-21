@@ -1,0 +1,8 @@
+---
+---
+
+/* Imports */
+@import "{{ site.theme }}";
+
+/* Customization */
+.site-nav .page-link:not(:last-child) { margin-right: 10px; }
