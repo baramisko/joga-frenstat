@@ -30,8 +30,11 @@ plugins:
   - jekyll-admin  
 
 header_pages:
+  - rozvrh-lekci.md      
+  - cenik-kurzu.md      
+  - prihlaska-do-kurzu.md  
+  - doporuceni-a-pravidla-studia.md  
   - kontakt.md  
-  - o-nas.md  
   
 google_analytics: UA-122120466-2
 
