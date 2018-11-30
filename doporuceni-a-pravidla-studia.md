@@ -1,6 +1,6 @@
 ---
 title: Doporučení a pravidla
 layout: page
----
 
-Připravujeme...
+---
+Stránka se připravuje....
