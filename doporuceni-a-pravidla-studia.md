@@ -7,8 +7,6 @@ layout: page
 
 ... chodí na lekce včas s dostatečným předstihem. Prokazuje tím respekt ostatním studentům i lektorovi a nevyrušuje tak plynutí lekce.
 
-... si vše zamyká ve skříňce v šatně a tak s sebou do sálu nenosí zbytečné věci.
-
 ...vypíná mobilní telefon nebo zvuk i vibrace.
 
 ...nevcházíme v botách do sálu.
@@ -41,4 +39,4 @@ Každý, kdo přijde na lekci je zodpovědný za svůj zdravotní stav, lektor n
 
 Dveře studia jsou otevřeny vždy min. 15 minut před začátkem lekce.
 
-Každý účastník je rovněž povinen dodržovat pokyny instruktora vztahující se ke cvičení a vybavení. V opačném případě nenese provozovatel žádnou zodpovědnost za vzniklé úrazy či zranění. Jakékoli zranění je nutné okamžitě instruktorovi sdělit. Během provozování sportovních aktivit nesmí klient ohrozit své zdraví, ani zdraví ostatních účastníků.  
+Každý účastník je rovněž povinen dodržovat pokyny instruktora vztahující se ke cvičení a vybavení. V opačném případě nenese provozovatel žádnou zodpovědnost za vzniklé úrazy či zranění. Jakékoli zranění je nutné okamžitě instruktorovi sdělit. Během provozování sportovních aktivit nesmí klient ohrozit své zdraví, ani zdraví ostatních účastníků.
