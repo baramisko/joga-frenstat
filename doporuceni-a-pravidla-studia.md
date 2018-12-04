@@ -31,7 +31,7 @@ layout: page
 
 ...zůstává po celou dobu lekce a pokud potřebuje odejít dříve, obeznámí s tím lektora před zahájením lekce
 
-Provozní řád  :
+**_Provozní řád_**  :
 
 Děti v sále nemohou zůstávat a sledovat probíhající lekci, prosím tedy o respektování věku nad 14 let. Hlídání nezajišťuji (zatím :) )
 
