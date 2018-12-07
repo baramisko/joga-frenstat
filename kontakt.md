@@ -16,3 +16,5 @@ Havlíčkova 31,
 744 01 Frenštát pod Radhoštěm,  
 Česká Republika  
 IČO: 07388781
+
+Další informace o mě najdete i na [www.baramisko.cz](https://www.baramisko.cz "www.baramisko.cz")
