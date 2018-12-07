@@ -1,6 +1,6 @@
 ---
-title: Přihláška 
+title: Přihláška
 layout: page
----
 
-Připravujeme...
+---
+Připravujeme....
