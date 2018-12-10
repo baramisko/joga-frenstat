@@ -8,8 +8,10 @@ layout: page
 
 Rezervace na ranní jógu a dopolední minimálně den předem přes tlačítko rezervace nebo smskou na tel. číslo:
 
- 773 876 114
+773 876 114
 
 Ranní i dopolední lekce se budou realizovat nad počet 3 :) Děkuji za pochopení.
+
+Počet míst a kapacita sálu je omezena, pro to neváhejte rezervovat lekce včas a v případě rozhodnutí se,že do lekce nenastoupíte, uvolníte místo uchazečům. Děkuji za vstřícnost :)
 
 ![](/uploads/Ranní jóga-1.jpg)
