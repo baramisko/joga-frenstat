@@ -10,10 +10,12 @@ Rezervace na ranní jógu a dopolední minimálně den předem přes tlačítko 
 
 773 876 114
 
-Ranní i dopolední lekce se budou realizovat nad počet 3 :) Děkuji za pochopení.
+Ranní i dopolední lekce se budou realizovat nad počet 2 :) 
 
-Počet míst a kapacita sálu je omezena, pro to neváhejte rezervovat lekce včas a v případě rozhodnutí se,že do lekce nenastoupíte, uvolníte místo uchazečům. Děkuji za vstřícnost 
+V případě,že máte zakoupenou vstupenku na deset lekcí,tak se lekce bude pořádat vždy
 
-:) POZOR ZMĚNA :) ranní jóga bude od 6:00 do 7:00, 15 minut po však můžete setrvat, převléci se do práce apod. Snad bude možnost i sprchy :)
+Děkuji za pochopení.
+
+Počet míst a kapacita sálu je omezena, pro to neváhejte rezervovat lekce včas a v případě rozhodnutí se,že do lekce nenastoupíte, uvolníte místo uchazečům. Děkuji za vstřícnost
 
 ![](/uploads/Ranní jóga-1.jpg)
