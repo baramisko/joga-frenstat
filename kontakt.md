@@ -18,3 +18,5 @@ Havlíčkova 31,
 IČO: 07388781
 
 Další informace o mě najdete také na [www.baramisko.cz](https://www.baramisko.cz "www.baramisko.cz")
+
+![](/uploads/18920296_10212909927971559_6638546303955506751_n.jpg)
