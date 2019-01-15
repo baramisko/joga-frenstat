@@ -9,4 +9,4 @@ Ranní a dopolední lekce je nutné rezervovat minimálně den předem a to pře
 
 Přihlásit do kurzů se můžete mailem bara.misko@seznam.cz , nebo na první hodině Vámi vybraného kurzu, na které se rovněž rozhodnete zda do kurzu nastoupíte či ne :) Pokud ano, úhrada kurzu na místě v hotovosti a v opačném případě, pokud se rozhodnete vybrat si jinou lekci, či lektorku :) zaplatíte pouze za hodinu 100,- Kč na místě.
 
-![](/uploads/Ranní jóga-1.jpg)
+![](/uploads/Ranní jóga-1-2.jpg)
