@@ -17,3 +17,5 @@ V případě,že máte zakoupenou vstupenku na deset lekcí,tak se lekce bude po
 Děkuji za pochopení.
 
 Počet míst a kapacita sálu je omezena, pro to neváhejte rezervovat lekce včas a v případě rozhodnutí se,že do lekce nenastoupíte, uvolníte místo uchazečům. Děkuji za vstřícnost
+
+![](/uploads/jjj.jpg)
