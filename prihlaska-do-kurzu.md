@@ -11,4 +11,4 @@ Přihlásit do kurzů se můžete mailem bara.misko@seznam.cz , nebo na první h
 
 Kurz úterní i dopolední stále k dispozici poslední místa, středeční v možnostech taky,neváhejte se optat.
 
-![](/uploads/jjj.jpg)
+![](/uploads/jjjjjjjj2222.jpg)
