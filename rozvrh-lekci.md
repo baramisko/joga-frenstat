@@ -12,11 +12,9 @@ layout: page
 
 Ranní i dopolední lekce se budou realizovat nad počet 2 :)
 
-V případě,že máte zakoupenou vstupenku na deset lekcí,tak se lekce bude pořádat vždy
+V případě,že máte zakoupenou vstupenku na deset lekcí,tak se lekce bude pořádat vždy.
 
 Děkuji za pochopení.
-
-Počet míst a kapacita sálu je omezena, pro to neváhejte rezervovat lekce včas a v případě rozhodnutí se,že do lekce nenastoupíte, uvolníte místo uchazečům. Děkuji za vstřícnost.
 
 Kurzy momentálně plně obsazeny.
 
