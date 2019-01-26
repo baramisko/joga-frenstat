@@ -11,7 +11,7 @@ layout: page
 
 ...nevcházíme v botách do sálu.
 
-...při vstupu do sálu ztišuje hlas a snaží se o vytvoření klidného prostředí, aby nerušil svým příchodem již připravené a mnohdy v sobě zadumané spolu-jogíny na svých podložkách.
+...při vstupu do budovy ztišuje hlas a snaží se o vytvoření klidného prostředí, aby nerušil svým příchodem již připravené a mnohdy v sobě zadumané spolu-jogíny na svých podložkách.
 
 ...má přizpůsoben oděv lekci. Tedy pohodlné oblečení.
 
