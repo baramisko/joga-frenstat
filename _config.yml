@@ -30,6 +30,7 @@ plugins:
   - jekyll-admin  
 
 header_pages:
+  - akce.md      
   - rozvrh-lekci.md      
   - cenik-kurzu.md      
   - prihlaska-do-kurzu.md  
