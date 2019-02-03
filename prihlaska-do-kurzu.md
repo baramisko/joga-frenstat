@@ -3,7 +3,7 @@ title: Přihláška
 layout: page
 
 ---
-Počet míst a kapacita sálu je omezena, pro to neváhejte rezervovat lekce včas a v případě rozhodnutí se,že do lekce nenastoupíte, uvolníte místo uchazečům. Děkuji za vstřícnost :)
+Pokud máte rádi menší počet lidí a komornější prostor,kde není ,tělo na tělo, ,tak mohou být moje lekce právě pro Vás. Kapacita sálu činí max 13 jógujících.
 
 Ranní a dopolední lekce je nutné **rezervovat** minimálně den předem a to přes rezervační systém, který naleznete na těchto stránkách v sekci Rozvrh lekcí... a nebo smskou na tel. číslo **773 876 114**
 
