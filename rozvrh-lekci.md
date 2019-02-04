@@ -19,5 +19,3 @@ Děkuji za pochopení.
 Kurzy momentálně plně obsazeny. Nabídku pobytových víkendů nebo lekcí naleznete v sekci AKCE.
 
 ![](/uploads/pokračování kurzu-1.jpg)
-
-![](/uploads/jjjjjjjj2222.jpg)
