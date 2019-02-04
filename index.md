@@ -9,4 +9,4 @@ _Jóga navrací ke kořenům, je to cesta,která nám ukazuje naše vnitřní J�
 
 Pokud máte rádi menší počet lidí a komornější prostor,kde není ,tělo na tělo, ,tak mohou být moje lekce právě pro Vás. Kapacita sálu činí max 13 jógujících.
 
-![](/uploads/shutterstock_584087884-1.jpg)
+![](/uploads/BeFunky-collage-1.jpg)
