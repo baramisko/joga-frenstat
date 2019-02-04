@@ -12,5 +12,3 @@ Přihlásit do kurzů se můžete mailem bara.misko@seznam.cz , nebo na první h
 Momentálně obsazeny všechny kurzy.
 
 ![](/uploads/pokračování kurzu-1.jpg)
-
-![](/uploads/jjjjjjjj2222.jpg)
