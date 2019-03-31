@@ -6,7 +6,7 @@ title: Kontakt
 ### Jak se objednat?
 
 emailem na bara.misko@seznam.cz  
-nebo telefonicky na 773 876 114
+nebo telefonicky na 773 876 114, klidně i smskou
 
 ### Kde mě najdete?
 
@@ -19,4 +19,4 @@ IČO: 07388781
 
 Další informace o mě najdete také na [www.baramisko.cz](https://www.baramisko.cz "www.baramisko.cz")
 
-![](/uploads/18920296_10212909927971559_6638546303955506751_n.jpg)
+![](/uploads/IMG_20190319_115011.jpg)
