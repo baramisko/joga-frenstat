@@ -3,11 +3,9 @@ title: Ceník kurzů
 layout: page
 
 ---
-Ceník :
+Ceník ( platný do konce Června 2019 )
 
 Skupinová ranní jóga 90,-/ lekce nebo 80,-/10 lekcí
-
-Individuální jóga od 170 Kč do 500 Kč dle rozsahu a povahy
 
 Jóga pro začátečníky od 22.1. do 30.4. - každé úterý 16:15-17:15 -1250,-Kč (15 lekcí)
 
