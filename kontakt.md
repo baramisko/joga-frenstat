@@ -19,7 +19,7 @@ IČO: 07388781
 
 Další informace o mě najdete také na [www.baramisko.cz](https://www.baramisko.cz "www.baramisko.cz")
 
-![](/uploads/IMG_20190319_115011.jpg)
+![](/uploads/56707539_143663036679650_4799415048910929920_o.jpg)
 
 ### O mně a józe
 
