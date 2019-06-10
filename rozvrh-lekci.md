@@ -3,12 +3,26 @@ title: Rozvrh lekcí 2019
 layout: page
 
 ---
-Rezervace probíhají formou sms nebo mailu.
+# Září - Prosinec 2019
 
-Ranní pondělní lekce od 6:00 jsou plně obsazeny, středa od 8:00 hodin na dotaz. :)
+#### Pondělí 18:00 - 19:00 , krom svátků, každé pondělí 16 lekcí.
 
-Děkuji za pochopení.
+###### Prvky Hatha jógy, Core Flow, Fasciální uvolnění, Aštanga Vinjása
 
-Kurzy momentálně plně obsazeny. Nabídku pobytových víkendů nebo lekcí naleznete v sekci AKCE.
+#### Úterý 16:15 - 17:15 , krom svátků, každé úterý 16 lekcí.
 
-![](/uploads/pokračování kurzu-1.jpg)
+###### Prvky Hatha jógy, Fasiální uvolnění, Flow plynutí s dechem, Surya Namaskar
+
+#### Úterý 17:30 -18:30, krom svátků, každé úterý 16 lekcí
+
+###### Aštanga Vinjása, Core Flow, Fasicální uvolnění, Nekonečný uzel
+
+#### Středa ,ranní lekce 6:00 - 7:00 a 8:00 - 9:00
+
+###### Ranní jemnější začátek yin/yan jógy , s fasiálním uvolnění, s prvky z náročnějších sestav na protažení a uvolnění napětí, zpevnění vnitřních svalů.
+
+#### Čtvrtek 11:00 - 12:00
+
+###### Antistress jóga, vhodná pro maminky, pro těžce pracující, pro těhotné, směnaře...Lekce probíhá bez dětí.
+
+###### Práce s dechem, s uvolnění napětí ve svalech, posílení a protažení. Before lunch a before kids a before job jóga :)
