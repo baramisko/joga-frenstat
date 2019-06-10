@@ -3,16 +3,16 @@ title: Ceník kurzů
 layout: page
 
 ---
-Ceník ( platný do konce Června 2019 )
+# **Kurzovné Září - Prosinec 2019**
 
-Skupinová ranní jóga 90,-/ lekce nebo 80,-/10 lekcí
+Pondělí 18:00 - 19:00                         1520,-Kč/16 lekcí
 
-Jóga pro začátečníky od 22.1. do 30.4. - každé úterý 16:15-17:15 -1250,-Kč (15 lekcí)
+Úterý 16:15-17:15                              1520,-Kč/16 lekcí
 
-Hatha a Vinyasa jóga od 22.1. do 30.4. - každé úterý 17:30-18:30 - 1350,-Kč (15 lekcí)
+Úterý 17:30-18:30                               1520,-Kč/16 lekcí
 
-Flow jóga od 23.1. do 24.4. - každou středu od 17:30-18:30 1200,- Kč (14 lekcí)
+Středa 6:00-7:00                                 90,-Kč/hodina/800/10 vstupů
 
-Pokud máte rádi menší počet lidí a komornější prostor,kde není ,tělo na tělo, ,tak mohou být moje lekce právě pro Vás. Kapacita sálu činí max 13 jógujících.
+Středa 8:00-9:00                                 90,-Kč/hodina/800/10 vstupů
 
-Kurzy obsazeny, ale neváhejte mne kontaktovat, né vše visí zde na webu :)
+Čtvrtek 11:00-12:00                           1400 ,-Kč/16 lekcí
