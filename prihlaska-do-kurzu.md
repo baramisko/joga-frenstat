@@ -3,6 +3,11 @@ title: Přihláška
 layout: page
 
 ---
-## Viz. rozpis kurzů, kontaktujte mne mailem na bara.misko@seznam.cz nebo smskou 773 876 114, zavolám nazpět, z důvodu pracovního vytížení :)
 
-## Těším se na Vás opět v Září
+Přihlásit se do kurzu můžete mailem na bara.misko@seznam.cz a potvrdit svou účast zaplacením na č.u 1123432000/2700, do zprávy vložte jméno a den kurzu.
+
+Pokud si nejste jistí kapacitou, či výběrem, napište a domluvíme se na podrobnostech. Můžete zaplatit i osobně po první lekci za 100 Kč,nebo úhradou celého kurzu, kdybyste se rozhodli v něm pokračovat. :)
+
+Těším se na Vás v Září. Bára
+
+![](/uploads/Září-1.jpg)
