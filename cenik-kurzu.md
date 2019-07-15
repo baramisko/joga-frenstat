@@ -15,4 +15,6 @@ Středa 6:00-7:00                                 90,-Kč/hodina/800/10 vstupů 
 
 Středa 8:00-9:00                                 90,-Kč/hodina/800/10 vstupů    3 volná místa
 
-Čtvrtek 11:00-12:00                           1400 ,-Kč/16 lekcí        8 volných míst
+Čtvrtek 11:00-12:00                           1400 ,-Kč/14 lekcí        8 volných míst
+
+![](/uploads/Září-1.jpg)
