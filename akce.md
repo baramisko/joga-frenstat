@@ -11,4 +11,4 @@ Víkend na Antariku se bude konat i v Listopadovém termínu od 15 - 17.11. 2019
 
 ![](/uploads/podzimní víkend jógy-1.jpg)
 
-## Nedělní kurzy meditace naplněny
+## 
