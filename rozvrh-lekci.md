@@ -5,4 +5,4 @@ layout: page
 ---
 # Září - Prosinec 2019
 
-###### ![](/uploads/Září-1.jpg)
+###### ![](/uploads/upraveno.JPG)
