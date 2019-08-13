@@ -7,7 +7,7 @@ layout: page
 
 Kurz Úterý 17:30 PLNĚ OBSAZEN (pouze na dotaz)
 
-Kurz Pondělí 18:00 poslední 3 místa
+Kurz Pondělí 18:00 poslední 2 místa
 
 Kurz Úterý 16:15 poslední 3 místa
 
