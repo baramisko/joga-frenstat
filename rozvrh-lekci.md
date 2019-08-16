@@ -9,7 +9,7 @@ Kurz Úterý 17:30 PLNĚ OBSAZEN (pouze na dotaz)
 
 Kurz Pondělí 18:00 poslední 1 místo
 
-Kurz Úterý 16:15 poslední 3 místa
+Kurz Úterý 16:15 poslední 2 místa
 
 Ráno středa obsazeno, dopoledne 3 místa volná
 
