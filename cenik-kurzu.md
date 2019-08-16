@@ -11,7 +11,7 @@ Pondělí 18:00 - 19:00                         1520,-Kč/16 lekcí
 
 Úterý 16:15-17:15                              1520,-Kč/16 lekcí
 
-3 volná místa
+2 volná místa
 
 Úterý 17:30-18:30                               1520,-Kč/16 lekcí
 
