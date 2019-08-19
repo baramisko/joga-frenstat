@@ -29,10 +29,16 @@ Mou  učitelkou, přítelem v józe a mentorkou jógy je [Eva Berkana](http://ww
 
 Inspirací na mé cestě je Srí Sv. Gitanánda, díky kterému se sebevzdělávám denně řadu let a je mi neustále obrovským darem, dále je to pan [Eduard Tomáš](https://cs.wikipedia.org/wiki/Eduard_Tom%C3%A1%C5%A1) a také [Srí Chinmoy](https://cs.wikipedia.org/wiki/%C5%A0r%C3%AD_%C4%8Cinmoj), jejichž slova a meditace aplikuji denně. Jsem absolventkou mnoha jógových seminářů a cest do zemí, kdy jsem měla možnost okusit pravou podstatu jógového života, jakou byl např. Nepál. Obrovským přínosem pro vzdělání jsou mi víkendové kurzy jógy Evy Svobodové Kizekové(jogasevou.cz), při kterém jsem měla možnost nahlédnout i do reflexní terapie ajurvédských masáží. Intenzivně jóguji přes pět let.
 
-A hlavně! Mne to baví! :)
-
-V brzké době mne čeká dokončení Bihárské školy jógy. Mám za sebou kurz Hatha a Vinyasa jógy a také mne čeká kurz jógy vědomí neboli Kundalíni jóga.
+A hlavně! Mne to baví! :) Mám za sebou kurz Hatha a Vinyasa jógy a také mne čeká kurz jógy vědomí neboli Kundalíni jóga.
 
 Na mé cestě se neustále vzdělávám. Jóga není jen o asánách,neboli o tělesnu, není jen o dechu čili pranajámatických cvičení, je to komplexní dar duchovních učitelů a já s největší pokorou a úctou ráda předávám znalosti,kterými jsem byla obohacena.
 
 Mým každodenním chlebem v józe je cesta Patanjalího a jógasuter,které mi ucelují životní pouť.
+
+Tento rok mne čekají tyto kurzy v sebezvělávání:
+
+V Září kurz Aromaterapie
+
+Říjen intenzivní seminář jógy s Dimitrisem Dibelem Asthanga yoga
+
+Prosinec 2019 kurz Ájurvedských masáží a technik
