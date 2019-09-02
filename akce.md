@@ -11,7 +11,7 @@ Dvou hodinová masáž 1100 ,- Kč ( nohy, ruce, záda, krk, hlava, obličej, hr
 
 Hodinová masáž - masáž proti bolesti ,tlaku v hlavě, uvolnění svalů, povolení bolesti kloubů,práce s energií 650 ,- Kč
 
-Masáž obličeje,šíje,hlavy 30 minut 350 ,- Kč , aromaterapie na vaší míru.
+Masáž obličeje,šíje,hlavy 30 minut 350 ,- Kč , aromaterapie na vaší míru, antivrásková masáž, zpomalující proces stárnutí.
 
 Masáž může být i zcela nevonná, pokud někdo trpíte na bolesti hlavy a na ,,pachy,, a vůně,tak Vás nechám unést do krajiny odpočinku nevonným olejem.
 
