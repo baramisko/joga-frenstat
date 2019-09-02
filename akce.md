@@ -3,7 +3,7 @@ layout: page
 title: Nabídka masáží a Akce s jógou
 
 ---
-### Nově nabídka aromaterapeutické ajurvédské (nejen) masáže ( otevřeno ke konci roku 2019, na informace se ptejte)
+### Nabídka aromaterapeutické ajurvédské (nejen) masáže ( otevřeno ke konci roku 2019, na informace se ptejte)
 
 ## 
 
