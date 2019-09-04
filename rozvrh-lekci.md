@@ -7,4 +7,4 @@ layout: page
 
 Kurzy jsou nyní plně obsazeny, pro informaci se ptejte po prvním týdnu v Září, kdy např. někdo nenastoupí.
 
-###### ![](/uploads/upraveno.JPG)
+###### ![](/uploads/joga.JPG)
