@@ -5,7 +5,7 @@ title: Kontakt
 ---
 ### Jak se objednat?
 
-emailem na bara.misko@seznam.cz  
+emailem na Bara.Nyja@seznam.cz  
 nebo telefonicky na 608 350 759, klidně i smskou
 
 ### Kde mě najdete?
