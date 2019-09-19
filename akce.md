@@ -7,7 +7,9 @@ title: Nabídka masáží a Akce s jógou
 
 Masáže jsou velmi vhodné pro všechny, kteří se chtějí zbavit napětí, nemohou se plně věnovat aktivnímu sportu, cítí nepříjemný tlak v těle, snaží se o miminko a ono nepřichází, masáž je vhodná zcela pro všechny, kteří chtějí.
 
-Pouze pro ženy nabízím : ( s muži po předešlé domluvě )
+Gua Sha ( kvaša ) masáží obličeje ,se zbavíte přebytečných **tekutin z tkání** (oteklých víček), **zlepšíte prokrvení pokožky**, **pleť zůstane napnutá** a **pružná.** Navíc redukuje vrásky, obnovuje kontury obličeje a **zbavuje toxických látek.**
+
+Má rovněž **pozitivní vliv na psychiku** a zásadně snižuje napětí v obličeji. Viditelných výsledků dosáhnete už za 10-12 dní. Doba trvání cca 30-40 minut 350,-- 450,-
 
 Dvou hodinová masáž 1100 ,- Kč ( nohy, ruce, záda, krk, hlava, obličej, hrudník, celková masáž , celého těla ) s olejem přímo pro vás po předešlém povídání.
 
