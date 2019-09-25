@@ -5,6 +5,8 @@ layout: page
 ---
 # **Kurzovné Září - Prosinec 2019**
 
-![](/uploads/joga.JPG)
+Kurzy jsou nyní plně ( né však úplně obsazeny )  pro informaci pište mail, či volejte .
+
+Děkuji
 
 ![](/uploads/Září-1.jpg)
