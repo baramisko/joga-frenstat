@@ -5,6 +5,6 @@ layout: page
 ---
 # Září - Prosinec 2019
 
-Kurzy jsou nyní plně obsazeny, pro informaci se ptejte po prvním týdnu v Září, kdy např. někdo nenastoupí.
+Kurzy jsou nyní plně( né plně ) obsazeny, pro informaci se ptejte po prvním týdnu v Září, kdy např. někdo nenastoupí.
 
-###### ![](/uploads/joga.JPG)
+###### ![](/uploads/joga.JPG)![](/uploads/Září-1.jpg)
