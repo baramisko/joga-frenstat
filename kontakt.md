@@ -21,6 +21,24 @@ Další informace o mě najdete také na [www.baramisko.cz](https://www.baramisk
 
 ![](/uploads/56707539_143663036679650_4799415048910929920_o.jpg)
 
+## O mně a mně
+
+Celý život kroužím okolo vůní, energií, péče o těla a ducha a tak jsem po letech v sociálních službách, práce s dětmi, lidmi, se závislými na různých vnějších vjemů opustila instituty a vrhla se do vlastního světa.
+
+Světa masáží
+
+Světa jógy
+
+Světa vůní
+
+Světa energií
+
+Světa, kde se eliminuje napětí, stres, strach, nemoce...
+
+Mým domovem je příroda, les, chaloupka v něm, potok, dvě kočky, můj muž, má rodina, klid a učení se k navrácení se k sobě, do nitra.
+
+Bude mi ctí s Vámi projít cestu k poznání sebe, v mužském i ženském aspektu.
+
 ### O mně a józe
 
 Neustálá praxe, neustálé studium a touha po lepším životě pro sebe i ostatní je mým pilířem jógy, je to cesta, díky které jsem si uvědomila své tělo, svou podstatu mysli, své nároky. Nejbližším stylem je mi přes 20 let stará Aštanga a Jivamukti jóga, oba směry zdokonaluji praxí samotnou tak pod vedením učitelů.
@@ -37,7 +55,7 @@ Mým každodenním chlebem v józe je cesta Patanjalího a jógasuter,které mi 
 
 Tento rok mne čekají tyto kurzy v sebezvělávání:
 
-V Září kurz Aromaterapie
+kurz Aromaterapie - již proběhlo
 
 Říjen intenzivní seminář jógy s Dimitrisem Dibelem Asthanga yoga
 
