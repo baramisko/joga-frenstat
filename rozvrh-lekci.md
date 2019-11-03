@@ -3,4 +3,6 @@ title: Rozvrh lekcí 2020
 layout: page
 
 ---
-# Kurzy 2020 budou spuštěny v Listopadu
+# Registrace do kurzů 2020
+
+![](/uploads/joga leden-page0001 (1).jpg)
