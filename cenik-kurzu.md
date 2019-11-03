@@ -3,10 +3,7 @@ title: Ceník kurzů
 layout: page
 
 ---
-# **Kurzovné Září - Prosinec 2019**
 
-Kurzy jsou nyní plně ( né však úplně obsazeny )  pro informaci pište mail, či volejte .
+Kurzy , které budou spuštěny na webu koncem Listopadu jsou k dispozici od Ledna roku 2020, kurzy do konce roku naplněny.
 
-Děkuji
-
-![](/uploads/Září-1.jpg)
+Těším se na Vás ve studiu
