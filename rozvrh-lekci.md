@@ -1,5 +1,5 @@
 ---
-title: Rozvrh lekcí 2019
+title: Rozvrh lekcí 2020
 layout: page
 
 ---
