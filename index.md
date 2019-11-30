@@ -9,6 +9,6 @@ _Jóga navrací ke kořenům, je to cesta,která nám ukazuje naše vnitřní J�
 
 ![](/uploads/BeFunky-collage-2.jpg)
 
-_Pokud máte rádi menší počet lidí a komornější prostor,kde není ,tělo na tělo, ,tak mohou být moje lekce právě pro Vás. Kapacita sálu činí max 11 jógujících._
+_Pokud máte rádi menší počet lidí a komornější prostor,kde není ,tělo na tělo, ,tak mohou být moje lekce právě pro Vás. Kapacita sálu činí max 15 jógujících._
 
 _Nemůžete se plně věnovat józe, bolí Vás záda, nemáte pohybový aparát přizpůsoben tak,abyste se cítili v ásánach dobře? Využijte masáže, které jsou velmi vhodnou variantou pro ty,kteří nemohou nebo prozatím nechtějí ,,jógovat,,_
