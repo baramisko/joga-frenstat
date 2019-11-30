@@ -33,7 +33,7 @@ layout: page
 
 **_Provozní řád_**  :
 
-Děti v sále nemohou zůstávat a sledovat probíhající lekci, prosím tedy o respektování věku nad 14 let. Hlídání není zajištěno.
+Děti ani psi v sále nemohou zůstávat a sledovat probíhající lekci, prosím tedy o respektování věku nad 14 let. Hlídání není zajištěno.
 
 Každý, kdo přijde na lekci je zodpovědný za svůj zdravotní stav, lektor nezodpovídá za zdravotní stav a nenese za něj žádnou odpovědnost.
 
