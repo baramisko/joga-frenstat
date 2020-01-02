@@ -7,9 +7,9 @@ layout: page
 
 Pondělí 6:00 - 7:00 hodin, ranní jóga, od začátku i pro zkušené s jógou , začínáme 6.1.202.
 
- Cena za lekci 100,- Kč nebo 90,- Kč na desetidenní vstupenku platnou 2,5 měsíce.
+Cena za lekci 100,- Kč nebo 90,- Kč na desetidenní vstupenku platnou 2,5 měsíce.
 
-Volných 10 míst -o tuto lekci je velký zájem, hlaste se pro to mailem bara.nyja@seznam.cz a přijďte na první lekci, kde se rozhodnete zaplatit.
+Volných 8 míst -o tuto lekci je velký zájem, hlaste se pro to mailem bara.nyja@seznam.cz a přijďte na první lekci, kde se rozhodnete zaplatit.
 
 Úterý 17:30-18:30 - kurz pokročilých a pro postupující z minulých ročníků, po naplnění kapacitou stálých klientů bude cca 5 míst volných, **tento kurz není určen pro začátečníky. ( Pokud však sportujete jiný sport a chcete prohloubit praxi a tělo, tak se neváhejte ozvat)**
 
@@ -23,13 +23,13 @@ Středa 8:00-9:00 jóga pro pracující na ,,devátou,, :) jóga pro maminky dom
 
 Začínáme 8.1.2020, cena 100,- lekce ,nebo 90,- desetidenní permice, platná 2,5 měsíce.
 
-Volných 9 míst
+Volných 5 míst
 
 Čtvrtek 16:00 -17:15 -plynulá jóga s delším protažením pro všechny s horší hybností, málo pohybu, pro starší osoby, osoby po operacích, pro ty co si chtějí dát do těla hodně a dlouho a zároveň velmi utišit mysl.
 
 2400,- kč 24 lekcí, začínáme 9.1.2020
 
-Volných 9 Míst.
+Volných 5 Míst.
 
 Čtvrtek 17:30-18:30 - Jin a Jang jóga -dosažení rovnováhy, mysli, těla i ducha. Vhodné pro všechny, již praktikující jogíny, tak začátečníky.
 
