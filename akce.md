@@ -7,7 +7,7 @@ title: Nabídka masáží
 
 Masáže jsou velmi vhodné pro všechny, kteří se chtějí zbavit napětí, nemohou se plně věnovat aktivnímu sportu, cítí nepříjemný tlak v těle, snaží se o miminko a ono nepřichází, masáž je vhodná zcela pro všechny, kteří chtějí.
 
-Gua Sha ( kvaša )pomocí tzv. Guashátek pomůcek- masáží obličeje ,se zbavíte přebytečných **tekutin z tkání** (oteklých víček), **zlepšíte prokrvení pokožky**, **pleť zůstane napnutá** a **pružná.** Navíc redukuje vrásky, obnovuje kontury obličeje a **zbavuje toxických látek.**
+Gua Sha ( kvaša )pomocí tzv. Guashátek pomůcek- masáží obličeje ,se zbavíte přebytečných **tekutin z tkání** (oteklých víček), **zlepšíte prokrvení pokožky**, **pleť zůstane napnutá** a **pružná.** Navíc redukuje vrásky, obnovuje kontury obličeje a **zbavuje toxických látek.![](/uploads/young-woman-have-face-treatment-at-beauty-clinic-royalty-free-image-1568140532.jpg)**
 
 Má rovněž **pozitivní vliv na psychiku** a zásadně snižuje napětí v obličeji. Viditelných výsledků dosáhnete už za 10-12 dní. Doba trvání cca 30-40 minut 350,-- 450,-
 
