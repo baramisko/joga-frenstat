@@ -20,3 +20,5 @@ Pokud máte zájem o některý z kurzů neváhejte mne kontaktovat na mail bara.
 Těším se a přeji vše dobré v novém roce.
 
 Bára
+
+![](/uploads/joga-leden (1).jpg)
