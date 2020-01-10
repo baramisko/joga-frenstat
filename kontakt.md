@@ -3,7 +3,7 @@ layout: page
 title: Kontakt
 
 ---
-Informace ,, o mně,, dole na stránce 
+Informace ,, o mně,, dole na stránce
 
 ### Jak se objednat?
 
@@ -56,6 +56,8 @@ A hlavně! Mne to baví! :) Mám za sebou kurz Hatha a Vinyasa jógy a také mne
 Na mé cestě se neustále vzdělávám. Jóga není jen o asánách,neboli o tělesnu, není jen o dechu čili pranajámatických cvičení, je to komplexní dar duchovních učitelů a já s největší pokorou a úctou ráda předávám znalosti,kterými jsem byla obohacena.
 
 Mým každodenním chlebem v józe je cesta Patanjalího a jógasuter,které mi ucelují životní pouť.
+
+![](/uploads/BeFunky-collage (1).jpg)
 
 Tento rok mne čekají tyto kurzy v sebezvělávání:
 
