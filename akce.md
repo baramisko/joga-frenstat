@@ -7,17 +7,19 @@ title: Nabídka masáží
 
 Masáže jsou velmi vhodné pro všechny, kteří se chtějí zbavit napětí, nemohou se plně věnovat aktivnímu sportu, cítí nepříjemný tlak v těle, snaží se o miminko a ono nepřichází, masáž je vhodná zcela pro všechny, kteří chtějí.
 
-Gua Sha ( kvaša )pomocí tzv. Guashátek pomůcek- masáží obličeje ,se zbavíte přebytečných **tekutin z tkání** (oteklých víček), **zlepšíte prokrvení pokožky**, **pleť zůstane napnutá** a **pružná.** Navíc redukuje vrásky, obnovuje kontury obličeje a **zbavuje toxických látek.**
+* Gua Sha ( kvaša )pomocí tzv. Guashátek pomůcek- masáží obličeje ,se zbavíte přebytečných **tekutin z tkání** (oteklých víček), **zlepšíte prokrvení pokožky**, **pleť zůstane napnutá** a **pružná.** Navíc redukuje vrásky, obnovuje kontury obličeje a **zbavuje toxických látek.**
 
 ![](/uploads/young-woman-have-face-treatment-at-beauty-clinic-royalty-free-image-1568140532-1.jpg)
 
 Má rovněž **pozitivní vliv na psychiku** a zásadně snižuje napětí v obličeji. Viditelných výsledků dosáhnete už za 10-12 dní. Doba trvání cca 30-40 minut 350,-- 450,-
 
-Dvou hodinová masáž 1100 ,- Kč ( nohy, ruce, záda, krk, hlava, obličej, hrudník, celková masáž , celého těla ) s olejem přímo pro vás po předešlém povídání. (nemusí být, mám i zcela neutrální esence)
+* Dvou hodinová masáž 1100 ,- Kč ( nohy, ruce, záda, krk, hlava, obličej, hrudník, celková masáž , celého těla ) s olejem přímo pro vás po předešlém povídání. (nemusí být, mám i zcela neutrální esence)
 
-Hodinová masáž - masáž proti bolesti ,tlaku v hlavě, uvolnění svalů, povolení bolesti kloubů,práce s energií 750 ,- Kč
 
-Masáž obličeje,šíje,hlavy 30 minut 350 ,- Kč , aromaterapie na vaší míru, antivrásková masáž, zpomalující proces stárnutí.
+* Hodinová masáž- proti bolesti ,**individuální,** uvolnění svalů, povolení bolesti kloubů,práce s energií 750 ,- Kč
+
+
+* Masáž obličeje,šíje,hlavy 30 minut 350 ,- Kč , aromaterapie na vaší míru, antivrásková masáž, zpomalující proces stárnutí.
 
 Masáž může být i zcela nevonná, pokud někdo trpíte na bolesti hlavy a na ,,pachy,, a vůně,tak Vás nechám unést do krajiny odpočinku nevonným olejem.
 
