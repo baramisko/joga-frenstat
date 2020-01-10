@@ -5,8 +5,4 @@ layout: page
 ---
 ## Rozvrh lekcí pro rok 2020
 
-## _prosím sledujte web pro případné změny ohledně startu lekcí z důvodu rekonstrukce studia. Děkuji a těším se :)_
-
-Lekce jsou kapacitně omezeny na 15 míst, kurz bude otevřen a konat se vždy v případě obsazenosti alespoň 6 ti jogujícími :)
-
 ![](/uploads/joga-leden.jpg)
