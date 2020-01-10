@@ -5,7 +5,7 @@ title: Nabídka masáží
 ---
 ![](/uploads/Ayurvedic-Massage-and-Spa-Thiruvananthapuram-1.jpg)
 
-Masáže jsou velmi vhodné pro všechny, kteří se chtějí zbavit napětí, nemohou se plně věnovat aktivnímu sportu, cítí nepříjemný tlak v těle, snaží se o miminko a ono nepřichází, masáž je vhodná zcela pro všechny, kteří chtějí.
+_Masáže jsou velmi vhodné pro všechny, kteří se chtějí zbavit napětí, nemohou se plně věnovat aktivnímu sportu, cítí nepříjemný tlak v těle, snaží se o miminko a ono nepřichází, masáž je vhodná zcela pro všechny, kteří chtějí._
 
 * Gua Sha ( kvaša )pomocí tzv. Guashátek pomůcek- masáží obličeje ,se zbavíte přebytečných **tekutin z tkání** (oteklých víček), **zlepšíte prokrvení pokožky**, **pleť zůstane napnutá** a **pružná.** Navíc redukuje vrásky, obnovuje kontury obličeje a **zbavuje toxických látek.**
 
@@ -21,8 +21,8 @@ Má rovněž **pozitivní vliv na psychiku** a zásadně snižuje napětí v obl
 
 * Masáž obličeje,šíje,hlavy 30 minut 350 ,- Kč , aromaterapie na vaší míru, antivrásková masáž, zpomalující proces stárnutí.
 
-Masáž může být i zcela nevonná, pokud někdo trpíte na bolesti hlavy a na ,,pachy,, a vůně,tak Vás nechám unést do krajiny odpočinku nevonným olejem.
+_Masáž může být i zcela nevonná, pokud někdo trpíte na bolesti hlavy a na ,,pachy,, a vůně,tak Vás nechám unést do krajiny odpočinku nevonným olejem._
 
-Přestože jsem prošla kurzy masáží a pomohla od bolesti i navrátila stav pokožky do pružného stavu a také zrelaxovala mysl, nevystavuji paragony na proplacení masáží.
+_Přestože jsem prošla kurzy masáží a pomohla od bolesti i navrátila stav pokožky do pružného stavu a také zrelaxovala mysl, nevystavuji paragony na proplacení masáží._
 
-Ceny jsou doporučené, vždy individuálně.
+_Ceny jsou doporučené, vždy individuálně._
