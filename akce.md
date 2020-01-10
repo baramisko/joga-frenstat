@@ -3,7 +3,7 @@ layout: page
 title: Nabídka masáží
 
 ---
-![](/uploads/Ayurvedic-Massage-and-Spa-Thiruvananthapuram.jpg)
+![](/uploads/Ayurvedic-Massage-and-Spa-Thiruvananthapuram-1.jpg)
 
 Masáže jsou velmi vhodné pro všechny, kteří se chtějí zbavit napětí, nemohou se plně věnovat aktivnímu sportu, cítí nepříjemný tlak v těle, snaží se o miminko a ono nepřichází, masáž je vhodná zcela pro všechny, kteří chtějí.
 
