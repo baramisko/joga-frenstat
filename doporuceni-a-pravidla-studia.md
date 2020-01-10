@@ -40,3 +40,11 @@ Každý, kdo přijde na lekci je zodpovědný za svůj zdravotní stav, lektor n
 Dveře studia jsou otevřeny vždy min. 15 minut před začátkem lekce.
 
 Každý účastník je rovněž povinen dodržovat pokyny instruktora vztahující se ke cvičení a vybavení. V opačném případě nenese provozovatel žádnou zodpovědnost za vzniklé úrazy či zranění. Jakékoli zranění je nutné okamžitě instruktorovi sdělit. Během provozování sportovních aktivit nesmí klient ohrozit své zdraví, ani zdraví ostatních účastníků.
+
+...Masáže...
+
+* Při masáži nemluvíme, nebo mluvíme tiše
+* Zkusíme alespoň 45 minut před masáží nejíst nic těžkého, začínáme většinou na břiše
+* Pokud chceme aromaterapii na míru, napíšeme den předem mail s naším psychickým rozpoložením, se zdravotními obtížemi a nebo se domluvíme o půl hodiny dříve a necháme si na místě namíchat vlastní esenci, za to však připlácím 150,- Kč ke své masáži, odnesete si sebou zbytek esence
+* Zkusíme nosit přesnou částku za masáž :)
+* Odosobníme se - a co to znamená - na masáž chodíme se záměrem dojít k uvolnění mysli a těla a jsme sami v sobě, ve svém nitru,klidně pláčeme, pokud je třeba vydechneme nebo vydáme zvuk, avšak jsme si vědomi, že masér je žuvá bytost a nemáme na něj žádné jiné nároky, než -li je schopen a ochoten splnit :)
