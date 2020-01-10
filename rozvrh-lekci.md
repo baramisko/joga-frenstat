@@ -21,4 +21,4 @@ _Těším se a přeji vše dobré v novém roce._
 
 _Bára_
 
-![](/uploads/joga-leden.jpg)
+![](/uploads/joga-leden (1).jpg)
