@@ -7,6 +7,8 @@ title: Nabídka masáží
 
 _Masáže jsou velmi vhodné pro všechny, kteří se chtějí zbavit napětí, nemohou se plně věnovat aktivnímu sportu, cítí nepříjemný tlak v těle, snaží se o miminko a ono nepřichází, masáž je vhodná zcela pro všechny, kteří chtějí._
 
+**_Používám čistě přírodní oleje na rostlinné bázi, s výběrem bylinek ( i z vlastní zahrádky)a éterických olejů 100% přírodních a certifikovaných, žádnou chemii do těla u mne nedostanete :)_**
+
 * Gua Sha ( kvaša )pomocí tzv. Guashátek pomůcek- masáží obličeje ,se zbavíte přebytečných **tekutin z tkání** (oteklých víček), **zlepšíte prokrvení pokožky**, **pleť zůstane napnutá** a **pružná.** Navíc redukuje vrásky, obnovuje kontury obličeje a **zbavuje toxických látek.**
 
 ![](/uploads/young-woman-have-face-treatment-at-beauty-clinic-royalty-free-image-1568140532-1.jpg)
