@@ -31,6 +31,10 @@ layout: page
 
 ...zůstává po celou dobu lekce a pokud potřebuje odejít dříve, obeznámí s tím lektora před zahájením lekce
 
+....nosí si vlastní podložku, nebo používá tu, kterou ponechá ve studiu, pokud nemá, lze zakoupit po domluvě
+
+...
+
 **_Provozní řád_**  :
 
 Děti ani psi v sále nemohou zůstávat a sledovat probíhající lekci, prosím tedy o respektování věku nad 14 let. Hlídání není zajištěno.
