@@ -3,6 +3,10 @@ layout: page
 title: Vítejte
 
 ---
+„Kdybych chtěl sdělit zprávu pro celý svět, řekl bych: „Nemějte starosti vůbec o nic“. Nemusíte někam chodit, abyste našli mír. Nemusíte jít do Indie, abyste našli mír. Protože je přesně tam, kde jste.“ Mooji  
+  
+Zdroj: [https://citaty.net/autori/mooji/](https://citaty.net/autori/mooji/ "https://citaty.net/autori/mooji/")
+
 **_AKCE_**  - [https://docs.google.com/document/d/1h4uTW96i3g-T20Gl6gDAzQMcrtNNMdpU8jylNCCuXIY/edit](https://docs.google.com/document/d/1h4uTW96i3g-T20Gl6gDAzQMcrtNNMdpU8jylNCCuXIY/edit "https://docs.google.com/document/d/1h4uTW96i3g-T20Gl6gDAzQMcrtNNMdpU8jylNCCuXIY/edit")
 
 **_Pobyt na Antariku s jógou viz.odkaz :)_**
