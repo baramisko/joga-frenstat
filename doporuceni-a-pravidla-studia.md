@@ -1,5 +1,5 @@
 ---
-title: Doporučení a pravidla
+title: Doporučení a rady
 layout: page
 
 ---
