@@ -1,5 +1,5 @@
 ---
-title: Počtení nejen o józe
+title: Inspirace
 layout: page
 
 ---
