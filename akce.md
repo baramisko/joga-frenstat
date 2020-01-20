@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Relaxační techniky a masáže
+title: Relaxace a masáže
 
 ---
 ![](/uploads/Ayurvedic-Massage-and-Spa-Thiruvananthapuram-1.jpg)
