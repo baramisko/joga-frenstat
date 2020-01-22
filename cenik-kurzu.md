@@ -5,9 +5,9 @@ layout: page
 ---
 Inspirace, články, odkazy...nejen o józe a vše , co k ní patří.
 
-Mudry
+Počtení nejen o józe najdete na mém blogu
 
-![](/uploads/Ruce jsou důležitou částí těla-1.jpg)
+[https://jogarkazchaloupky.blogspot.com/](https://jogarkazchaloupky.blogspot.com/ "https://jogarkazchaloupky.blogspot.com/")
 
 Očista prostoru, očista sebe, domova, harmonizace
 
