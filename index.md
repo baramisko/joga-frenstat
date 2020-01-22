@@ -5,7 +5,7 @@ title: Vítejte
 ---
 _...na stránkách jógy s Bárou..._
 
-„Kdybych chtěl sdělit zprávu pro celý svět, řekl bych: „Nemějte starosti vůbec o nic“. Nemusíte někam chodit, abyste našli mír. Nemusíte jít do Indie, abyste našli mír. Protože je přesně tam, kde jste.“ Mooji
+_„Kdybych chtěl sdělit zprávu pro celý svět, řekl bych: „Nemějte starosti vůbec o nic“. Nemusíte někam chodit, abyste našli mír. Nemusíte jít do Indie, abyste našli mír. Protože je přesně tam, kde jste.“ Mooji_
 
 Zdroj: [https://citaty.net/autori/mooji/](https://citaty.net/autori/mooji/ "https://citaty.net/autori/mooji/")
 
