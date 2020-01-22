@@ -59,10 +59,26 @@ Mým každodenním chlebem v józe je cesta Patanjalího a jógasuter,které mi 
 
 ![](/uploads/BeFunky-collage (1).jpg)
 
-Tento rok mne čekají tyto kurzy v sebezvělávání:
+Kurzy a vzdělání:
 
-kurz Aromaterapie - již proběhlo
+Moje kamarádka řekla velmi moudrou větu, vždyť Patanjali taky neměl titul a učil jógu, Ježíš, Buddha....ale na to se dnes moc nehraje, každý chce vidět výpis kurzů, hodin, nejlépe v Indii či na Bali. 
 
-Říjen intenzivní seminář jógy s Dimitrisem Dibelem Asthanga yoga
+Vyučuji klasickou jógu, která dává zabrat nejen tělu ,ale i mysli. Asthanga, Hatha, Meditace, Pranajáma, Bhakti, Karma, Chakras....
 
-Prosinec 2019 kurz Ájurvedských masáží a technik
+Komplexně.
+
+Mým největším kurzem je každodenní praxe, studium a učení ostatních.
+
+Pokud Vám to přece jen nedá a chcete vědět, co jsem studovala či který kurz mám hotov tak prosím :
+
+Asthanga yoga - Dimitris Dibelo a Sr. K. Pattabhi Jois
+
+Hatha yoga,Terapeutická jóga,Bihárska škola -Eva Berkana
+
+Jivamukti yoga for master class - Jules Febre
+
+Aromaterapie - Zázraky duše
+
+Ayurvédská masáž a techniky - škola Ayurvédy Dr.Mazala, Krkonoše
+
+Meditace a fasciální yoga - Dambar Pan, Nepál
