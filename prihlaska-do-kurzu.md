@@ -1,5 +1,5 @@
 ---
-title: Přihláška 2020
+title: Volná místa
 layout: page
 
 ---
