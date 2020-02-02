@@ -3,9 +3,7 @@ title: Inspirace
 layout: page
 
 ---
-Inspirace, články, odkazy ... jen o józe a vše, co k nim patří.
-
-Počtení jen o józedou na mém blogu
+Inspirace, články, odkazy ...
 
 [https://jogarkazchaloupky.blogspot.com/](https://jogarkazchaloupky.blogspot.com/ "https://jogarkazchaloupky.blogspot.com/")
 
