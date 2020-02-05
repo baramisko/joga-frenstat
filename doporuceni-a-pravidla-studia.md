@@ -3,52 +3,54 @@ title: Doporučení a rady
 layout: page
 
 ---
-Účastník lekce...
+Účastník lekce ...
 
-... chodí na lekce včas s dostatečným předstihem. Prokazuje tím respekt ostatním studentům i lektorovi a nevyrušuje tak plynutí lekce.
+... chodí na lekce včas s dostatečným předstihem. Prokázat, že respektovat ostatní studenty i lektorovi a nevyrušuje tak plynutí lekce.
 
-...vypíná mobilní telefon nebo zvuk i vibrace.
+... vypíná mobilní telefon nebo zvuk i vibrace.
 
-...nevcházíme v botách do sálu.
+... nevcházíme v botách do sálu.
 
-...při vstupu do budovy ztišuje hlas a snaží se o vytvoření klidného prostředí, aby nerušil svým příchodem již připravené a mnohdy v sobě zadumané spolu-jogíny na svých podložkách.
+... při vstupu do budovy ztišuje hlas a pomocí seřízení klidného prostředí, aby nerušil vaše příchodem již připravené a mnohokrát v sobě zadumané spolu-jogíny na cíl cílech.
 
-...má přizpůsoben oděv lekci. Tedy pohodlné oblečení.
+... má přizpůsoben oděv lekci. Tedy sportovní oblečení.
 
-...na lekci přichází s prázdným žaludkem. To je min. hodinu po menším jídle a dvě a více po jídle hutnějším.
+... na lekci přichází s prázdným žaludkem. Na min. hodiny po menším jídle a dvě a více po jídle hutnějším.
 
-...komunikuje s lektorem, pokud má nějaké zdravotní problémy.
+... komunikuje s lektorem, když má zdravotní problémy.
 
-...nepoužívá silné parfémy ani deodoranty, aby tím nenarušoval ostatní během dýchacích technik a meditace.
+... zneužívá špatné parfémy ani deodoranty, aby nenarušoval ostatní během dýchacích technik a meditace.
 
-...dodržuje osobní hygienu :)
+... navštívává osobní hygienu :)
 
-...nechává své ego a soutěživost za dveřmi.
+... nechává své ego a soutěživost za dveřmi.
 
-...ví, že lektor jógy není lékař, ani psychiatr.
+... ví, že lektor jógy není lékař, ani psychiatr.
 
-...ví, že jóga je pro každého a není nutné mít předešlé zkušenosti.
+... ví, že jóga je pro každého a není schopen mít předešlé zkušenosti.
 
-...zůstává po celou dobu lekce a pokud potřebuje odejít dříve, obeznámí s tím lektora před zahájením lekce
+... po zůstává celou pokud a pokud a a a ob a
 
-....nosí si vlastní podložku, nebo používá tu, kterou ponechá ve studiu, pokud nemá, lze zakoupit po domluvě
+.... nosíte vlastní objektku, nebo nepoužíváte, přijímáte ve studiu, pokud máte, máte možnost po domluvě
 
 ...
 
-**_Provozní řád_**  :
+**_Provozní řád_**   :
 
-Děti ani psi v sále nemohou zůstávat a sledovat probíhající lekci, prosím tedy o respektování věku nad 14 let. Hlídání není zajištěno.
+Děti ani psi v sále nemohou zůstat a čekají lekci, žádají o respektování věku nad 14 let. Hlídání není zajištěno.
 
-Každý, kdo přijde na lekci je zodpovědný za svůj zdravotní stav, lektor nezodpovídá za zdravotní stav a nenese za něj žádnou odpovědnost.
+Každý, kdo přijde na lekci, je možné zjistit jeho zdravotní stav, lektor nezodpovídá za zdravotní stav a nenese žádnou odpovědnost za odpovědnost.
 
-Dveře studia jsou otevřeny vždy min. 15 minut před začátkem lekce.
+Dveře studia jsou otevřenéeny vždy min. 15 minut před začátkem lekce.
 
-Každý účastník je rovněž povinen dodržovat pokyny instruktora vztahující se ke cvičení a vybavení. V opačném případě nenese provozovatel žádnou zodpovědnost za vzniklé úrazy či zranění. Jakékoli zranění je nutné okamžitě instruktorovi sdělit. Během provozování sportovních aktivit nesmí klient ohrozit své zdraví, ani zdraví ostatních účastníků.
+Každý, kdo je povinen, může přijímat pokyny instruktora Související se cvičením a vybavením. V opačném případě nenese správce rizikovosti za vzniklé úrazy nebo zranění. Jakékoli zranění je pravděpodobné instruktorovi sdělit. Během provozování sportovních aktivit není možné ohrožovat vaše zdraví, ani zdraví ostatních účastníků.
 
-...Masáže...
+... Masáže ...
 
 * Při masáži nemluvíme, nebo mluvíme tiše
-* Zkusíme alespoň 45 minut před masáží nejíst nic těžkého, začínáme většinou na břiše
-* Pokud chceme aromaterapii na míru, napíšeme den předem mail s naším psychickým rozpoložením, se zdravotními obtížemi a nebo se domluvíme o půl hodiny dříve a necháme si na místě namíchat vlastní esenci, za to však připlácím 150,- Kč ke své masáži, odnesete si sebou zbytek esence
-* Zkusíme nosit přesnou částku za masáž :)
-* Odosobníme se - a co to znamená - na masáž chodíme se záměrem dojít k uvolnění mysli a těla a jsme sami v sobě, ve svém nitru,klidně pláčeme, pokud je třeba vydechneme nebo vydáme zvuk, avšak jsme si vědomi, že masér je žuvá bytost a nemáme na něj žádné jiné nároky, než -li je schopen a ochoten splnit :)
+* Vyzkoušejte 45 minut před masáží nejíst nic těžkého, začínáme vaše na břiše
+* Pokud máte aromaterapii na míru, napíšeme ji předem s psychickým rozpoložením, zdravotním postižením a nebo se domluvíme o půl hodiny dříve, nechceme si na místě namíchat vlastní esenci, za to, že připlácí 150, - Kč zůstat esence
+* Vyzkoušejte nosit čekající částku za masáž :)
+* Odesílání zpráv - co to znamená - na masáž chodíme se záměrem hledat na uvolnění mysli a těmi, kteří jsou v sobě, ve hře Nit Nit, klidně pláčeme, kdo je pravděpodobný vydechnout nebo vydávat zvuk, kdo je masérem jiný uživatel, než -li je příjemně splnit :)
+
+Kurzovné je nevratné
