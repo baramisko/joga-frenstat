@@ -9,7 +9,7 @@ Kurzy naplněné, možno přidat v Únoru a na tyto dny a lekce:
 
 Pondělí 6:00 - 7:00 100, -Kč / 90, -Kč permice, 4 volná místa
 
-Úterý 17: 30-18: 30 20 lekcí / 2000, -Kč 3 volná místa, pokročilí
+Úterý 17: 30-18: 30 20 lekcí / 2000, -Kč 3 volná místa, pokročil
 
 Středa 8:00 - 9:00 100, -Kč / 90, -Kč permice, 4 volná místa
 
