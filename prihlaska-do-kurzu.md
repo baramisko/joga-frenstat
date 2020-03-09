@@ -19,7 +19,7 @@ Středa 8:00 - 9:00 100, -Kč / 90, -Kč permice, 4 volná místa
 
 Pokud máte zájem o kurz, neváhejte mne kontaktovat na mail bara.nyja@seznam.cz. Všechny kurzy vypínány jsou jak pro začátečníky, tak pro zkušené s jógou.
 
-Těší se a přeji vše dobré v novém roce.
+Těší se a přeji vše dobré v novém roce
 
 Bára
 
