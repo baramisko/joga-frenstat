@@ -49,7 +49,6 @@ Každý, kdo je povinen, může přijímat pokyny instruktora Související se c
 
 * Při masáži nemluvíme, nebo mluvíme tiše
 * Vyzkoušejte 45 minut před masáží nejíst nic těžkého, začínáme vaše na břiše
-* Pokud máte aromaterapii na míru, napíšeme ji předem s psychickým rozpoložením, zdravotním postižením a nebo se domluvíme o půl hodiny dříve, nechceme si na místě namíchat vlastní esenci, za to, že připlácí 150, - Kč zůstat esence
 * Vyzkoušejte nosit čekající částku za masáž :)
 * Odesílání zpráv - co to znamená - na masáž chodíme se záměrem hledat na uvolnění mysli a těmi, kteří jsou v sobě, ve hře Nit Nit, klidně pláčeme, kdo je pravděpodobný vydechnout nebo vydávat zvuk, kdo je masérem jiný uživatel, než -li je příjemně splnit :)
 
