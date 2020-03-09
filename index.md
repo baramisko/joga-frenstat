@@ -7,11 +7,9 @@ _...na stránkách jógy s Bárou..._
 
 _„Kdybych chtěl sdělit zprávu pro celý svět, řekl bych: „Nemějte starosti vůbec o nic“. Nemusíte někam chodit, abyste našli mír. Nemusíte jít do Indie, abyste našli mír. Protože je přesně tam, kde jste.“ Mooji_
 
-###### Zdroj: [https://citaty.net/autori/mooji/](https://citaty.net/autori/mooji/ "https://citaty.net/autori/mooji/")
+###### Pobyt na Antariku, zcela vyjimečný pobyt s jógou v nádherném prostředí v srdci divočiny, na samotě.Viz dole odkaz. Místa k dispozici v dolním patře v rekonstruovaných pokojích - 6 pokojů.
 
 **_AKCE_**  - [https://docs.google.com/document/d/1h4uTW96i3g-T20Gl6gDAzQMcrtNNMdpU8jylNCCuXIY/edit](https://docs.google.com/document/d/1h4uTW96i3g-T20Gl6gDAzQMcrtNNMdpU8jylNCCuXIY/edit "https://docs.google.com/document/d/1h4uTW96i3g-T20Gl6gDAzQMcrtNNMdpU8jylNCCuXIY/edit")
-
-**_Pobyt na Antariku s jógou viz.odkaz :)_**
 
 _Jóga navrací ke kořenům, je to cesta,která nám ukazuje naše vnitřní Já a duši v celistvosti a tuto celistvost Vám chci na mých hodinách předat s pokorou a úctou ke každému z Vás._
 
