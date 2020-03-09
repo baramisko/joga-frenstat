@@ -5,22 +5,22 @@ title: Relaxace a masáže
 ---
 ![](/uploads/Ayurvedic-Massage-and-Spa-Thiruvananthapuram-1.jpg)
 
-_Masáže jsou velmi vhodné pro všechny, kteří se chtějí zbavit napětí, nemohou se plně věnovat aktivnímu sportu, cítí nepříjemný tlak v těle, snaží se o miminko a ono nepřichází, masáž je vhodná zcela pro všechny, kteří chtějí._
+_Masáže jsou velmi aktivní pro všechny, kteří mají aktivované napětí, kteří se aktivně aktivují aktivují, trpí nepříjemným tlakem v těle, ohrožují miminko a nepřátele, masírují je možné pro každého, kdo hledá._
 
-**_Používám čistě přírodní oleje na rostlinné bázi, s výběrem bylinek ( i z vlastní zahrádky)a éterických olejů 100% přírodních a certifikovaných, žádnou chemii do těla u mne nedostanete :)_**
+**_Používá čisticí prostředky na rostlinné bázi, s výběrem bylinek (je vlastní zahrádky) a éterických olejů 100% přírodní a certifikované, chemické látky do těla u mne dostávají :)_**
 
-* Gua Sha ( kvaša )pomocí tzv. Guashátek pomůcek- masáží obličeje ,se zbavíte přebytečných **tekutin z tkání** (oteklých víček), **zlepšíte prokrvení pokožky**, **pleť zůstane napnutá** a **pružná.** Navíc redukuje vrásky, obnovuje kontury obličeje a **zbavuje toxických látek.**
+* Gua Sha (kvaša) pomocí tzv. Guashátek pomůcek- masáže obličeje, se zbavíte přebytečných **tekutin z tkání** (oteklých víček), **zlepšíte prokrvení svých klientů** , **pleť zůstane napnutá** a **pružná.** Možné redukuje vrásky, obnovuje **kontury pevných látek** a **zbavuje toxické látky.**
 
 ![](/uploads/young-woman-have-face-treatment-at-beauty-clinic-royalty-free-image-1568140532-1.jpg)
 
-Má rovněž **pozitivní vliv na psychiku** a zásadně snižuje napětí v obličeji. Viditelných výsledků dosáhnete už za 10-12 dní. Doba trvání cca 30-40 minut 350,-- 450,-
+Má **pozitivní vliv na psychiku** a principiální napětí v obličeji. Viditelné výsledky očekáváme již za 10-12 dní. Doba trvání cca 30-40 minut 350, - 450, -
 
-* Dvou hodinová masáž 1100 ,- Kč ( nohy, ruce, záda, krk, hlava, obličej, hrudník, celková masáž , celého těla ) s olejem přímo pro vás po předešlém povídání. (nemusí být, mám i zcela neutrální esence)
-* Hodinová masáž- proti bolesti ,**individuální,** uvolnění svalů, povolení bolesti kloubů,práce s energií 750 ,- Kč
-* Masáž obličeje,šíje,hlavy 30 minut 350 ,- Kč , aromaterapie na vaší míru, antivrásková masáž, zpomalující proces stárnutí.
+* Dvou hodinová masáž 1100, - Kč (nohy, ruce, záda, krk, hlava, obličej, hrudník, celková masáž, vaše tělo) s olejem přímo pro vás po předešlém povídání. (nemusí být, mám i neutrální esence)
+* Hodinová masáž - proti bolesti, **individuální,** uvolnění svalů, povolení bolesti kloubů, práce s energií 750, - Kč
+* Masáž obličeje, šíje, hlavy 30 minut 350, - Kč, aromaterapie na vlastní míru, antivrásková masáž, omezující proces stárnutí.
 
 _Masáž může být i zcela nevonná, pokud někdo trpíte na bolesti hlavy a na ,,pachy,, a vůně,tak Vás nechám unést do krajiny odpočinku nevonným olejem._
 
-_Přestože jsem prošla kurzy masáží a pomohla od bolesti i navrátila stav pokožky do pružného stavu a také zrelaxovala mysl, mé techniky jsou čistě relaxační._
+_Těšíme se na progresivní kurzy masáže a bolesti od navrácení těla pacienta do pružného stavu a na vyspělou mysl, mé techniky jsou čistě relaxační._
 
-_Ceny jsou doporučené, vždy individuálně._
+_Ceny jsou dostupné, vždy individuálně._
