@@ -15,6 +15,10 @@ Kdo je Bára? ví jen bůh a ona, něco mezi nebem a zemí :) ale představu si 
 
 ![](/uploads/BeFunky-collage (7).jpg)
 
+![](/uploads/BeFunky-collage (8).jpg)
+
+![](/uploads/BeFunky-collage-2.jpg)
+
 Inspirace, články, odkazy ...
 
 [https://jogarkazchaloupky.blogspot.com/](https://jogarkazchaloupky.blogspot.com/ "https://jogarkazchaloupky.blogspot.com/")
