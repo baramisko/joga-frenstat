@@ -1,8 +1,18 @@
 ---
-title: Inspirace
+title: O Báře
 layout: page
 
 ---
+Kdo je Bára? ví jen bůh a ona, něco mezi nebem a zemí :) ale představu si lze udělat 
+
+![](/uploads/BeFunky-collage (6).jpg)
+
+![](/uploads/BeFunky-collage (5).jpg)
+
+![](/uploads/BeFunky-collage (4).jpg)
+
+![](/uploads/BeFunky-collage (3).jpg)
+
 Inspirace, články, odkazy ...
 
 [https://jogarkazchaloupky.blogspot.com/](https://jogarkazchaloupky.blogspot.com/ "https://jogarkazchaloupky.blogspot.com/")
