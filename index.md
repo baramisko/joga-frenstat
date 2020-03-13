@@ -3,6 +3,10 @@ layout: page
 title: Vítejte
 
 ---
+Přátelé s ohledem na situaci je provoz lekcí na celý příští týden minimálně pozastaven, budu informovat o dalších krocích a pevně věřím ,že se sejdeme ve zvýšené opatrnosti ,co nejdříve.
+
+Děkuji
+
 _...na stránkách jógy s Bárou..._
 
 _„Kdybych chtěl sdělit zprávu pro celý svět, řekl bych: „Nemějte starosti vůbec o nic“. Nemusíte někam chodit, abyste našli mír. Nemusíte jít do Indie, abyste našli mír. Protože je přesně tam, kde jste.“ Mooji_
