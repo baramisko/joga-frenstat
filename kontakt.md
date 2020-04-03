@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Kontakt
+title: Kontakt...
 
 ---
 Informace ,, o mně,, dole na stránce
@@ -75,7 +75,7 @@ Pokud Vám to přece jen nedá a chcete vědět, co jsem studovala či který ku
 
 Asthanga yoga - Dimitris Dibelo a Sr. K. Pattabhi Jois
 
-Hatha yoga,Terapeutická jóga,Bihárska škola -Eva Berkana
+Terapeutická jóga,Bihárska škola -Eva Berkana
 
 Jivamukti yoga for master class - Jules Febre
 
