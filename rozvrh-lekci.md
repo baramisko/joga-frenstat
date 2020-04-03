@@ -1,16 +1,16 @@
 ---
-title: Lekce 2020
+title: 'Lekce jógy '
 layout: page
 
 ---
-## Rozvrh lekcí pro rok 2020
+![](/uploads/Saul-Spiritual-Evolution-is-Humanity’s-Purpose-and-Intent.jpg)
 
-_Kurzy naplněny, lze se přidat v Dubnu._
+      _Lekce jógy jsou v plném proudu, vzhledem k situaci v online verzi skrze videa._
 
-_Pokud máte zájem o některý z kurzů neváhejte mne kontaktovat na mail bara.nyja@seznam.cz. Všechny kurzy,co jsou vypsány jsou vhodné jak pro začátečníky, tak pro zkušené s jógou._
+_Sledujte aktualizace týkající se nových lekcí._
 
-_Těším se a přeji vše dobré v novém roce._
+_V nabídce nás čeká v novém školním roce Hatha Yoga, Asthanga Yoga, Pranajáma, Ranní Flow a Core Power._
 
-_Bára_
+_Ceny za lekce budou upřesněny, až se lidstvo navrátí do běžného procesu zdraví._
 
-![](/uploads/joga-leden (1).jpg)
+_Namasté_
