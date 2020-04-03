@@ -37,9 +37,39 @@ _Pracuji především s technikami Ajurvédy a reflexními technikami._
 
 _Uleví se všem, kdo úlevu potřebuje._
 
+**_Olejové zábaly_**
+
+_Olej se dokáže ve své účinnosti vstřebat až do kostí, až do nervového zakončení a všech koutů našeho těla._
+
+_Olejový zábal může být velmi vhodným doplňkem po masáži i jako samostatný rituál._
+
+_Při chronických bolestech , při akutní bolesti plotýnkového tipu, pokud jsme prodělali vážnou nemoc jater, ledvin,…_
+
+_Přikládáním teplého oleje na gáze na postižené místo se můžete uzdravit rychleji, ulevit si rychleji, a nebo také jako prevenci před civilizačními chorobami._
+
+_Ženy ocení omlazující rituál na tvář a obličej, dekolt, krk, ruce a nohy._
+
+_Na olejové zábaly je nutno se objednat týden dopředu. Po zaslání dotazníku, ohledně zdravotního stavu, krevního tlaku či alergii najdeme společný termín._
+
+_Cena zábalu_
+
+_Celé tělo – 1500,- Kč ( 80 minut )_
+
+_Paže, ramena,ruce,dlaně 500,- Kč (40minut)_
+
+_Dolní končetiny včetně chodidel 450,- Kč (40 minut)_
+
+_Břicho samostatně 400,- Kč ( vhodné proti zácpám, průjmům, plynatosti, po císařském řezu…-40minut)_
+
+_Obličej, hlava, krk, dekolt 450,- Kč (40 minut)_
+
+_Záda – 450,- Kč ( celá páteř,hýždě) (40minut)_
+
+_Masáž hlavy a zábal vlasů pro růst a podporu 400,- Kč (40 minut)_
+
 ![](/uploads/gynNUe9fTCyUpQTvSSpd_shamanka_large_landscape.jpg)
 
-                                      _Rituál na míru_
+                   Rituál na míru
 
 _Pokud toužíte po odstranění napětí nejen z těla, ale i mysli, lze se domluvit na individuálním rituálu, který trvá cca dvě hodiny času._
 
