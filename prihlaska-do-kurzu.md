@@ -1,23 +1,36 @@
 ---
-title: Náhrady lekcí
+title: Nabídka ceníku
 layout: page
 
 ---
+           _Cením si svou práci a své služby pro Vás takto_
 
-Náhrady lekcí lze uplatnit v případě, že:
+_Meditace na míru po mailové domluvě, toho, co Vás trápí a s čím chcete pracovat, doba trvání cca 40 minut 350,- Kč, odesláno v hlasové formě pouze pro Vás._
 
-* stihli jste se odhlásit 24 hodin předem nejméně formou sms na tel. číslo 608 350 759, žádné jiné kontakty nebudou brány, jelikož nejsem online neustále a mohu nabídnout místo někomu jinému.
-* výjimečně z důvodu nevolnosti či jiných krizových situací ráno v den lekce
-* pokud odpadne lekce z mé iniciativy , náhrada bude vždy možná nebo se vrací část kurzovného v dalším roku či zpětně po vyúčtování  na konci jógového roku.
+_Jógová sestava na doma, na míru, ve video formátu s odkazem pouze pro Vás doba trvání 50 minut – 400,- Kč s relaxací doba trvání 75 minut – 500,- Kč_
 
-Nelze si nahradit lekci jiným člověk, nevoďte mi prosím do studia ,,náhradníky,,
+_Masáž 90 minut_
 
-Mějte na vědomí, že mám kurzy plné a nebudu ubírat místo a prostor, pohodlí a také vedení kurzu ostatním.
+_750,- Kč_
 
-Kurzy jsou vedeny každý malinko jinak pro to berte na zřetel i toto.
+_práce s krystaly na závěr 150,- Kč navíc_
 
-Děkuji za vzájemný respekt a úctu při těchto pravidlech.
+_Masáž 120 minut_
 
-Kurzovné je nevratné, lze se vždy domluvit jak je výše napsáno.
+_1100,- Kč_
 
-Namasté
+_práce s krystaly na závěr navíc 150,- Kč_
+
+_Celý rituál s očistou , ochranou na závěr, s teplým olejem tekoucím po čele a prací s krystaly, včetně zcela hlubinné masáže ajurvédskými technikami v trvání 90 minut_
+
+_950,- Kč_
+
+_nebo 120 minut_
+
+_1400,- Kč_
+
+_Uvedené ceny jsou zcela dobrovolné a mohou se lišit dle domluvy a individuálního přístupu._
+
+_Chcete-li na všem se domluvíme._
+
+_Peníze od Vás přijímám zcela dobrovolně ,stejně jako Vy mi je dáváte za účelem dobrovolného dárku._
