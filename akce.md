@@ -3,6 +3,8 @@ layout: page
 title: Relaxace a masáže
 
 ---
+ ![](/uploads/shamanic-soul-retrieval.l-1024x576.jpg)
+
                              **_Masáž jako rituál_**
 
 _Příchodem a naladěním se na společnou cestu masáže začíná Vaše osobní relaxace._
