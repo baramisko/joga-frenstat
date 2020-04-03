@@ -29,6 +29,8 @@ _nebo 120 minut_
 
 _1400,- Kč_
 
+_Rituál na míru v trvání cca dvou hodin 2000,- Kč – odnesete si nejen novou energii ,ale také svou vlastní esenci pro Vaši potřebu ve formě osobního oleje na míru nebo vykuřovací směsi._
+
 _Uvedené ceny jsou zcela dobrovolné a mohou se lišit dle domluvy a individuálního přístupu._
 
 _Chcete-li na všem se domluvíme._
