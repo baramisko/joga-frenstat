@@ -34,3 +34,9 @@ _Uvedené ceny jsou zcela dobrovolné a mohou se lišit dle domluvy a individuá
 _Chcete-li na všem se domluvíme._
 
 _Peníze od Vás přijímám zcela dobrovolně ,stejně jako Vy mi je dáváte za účelem dobrovolného dárku._
+
+_Kurzovné je nevratné po odchození tří lekcí v plné výši…_
+
+_Máte dostatek času přijít na to, zda-li Vám můj přístup vyhovuje či nikoli…_
+
+_Vyjímky cen lze po domluvě dohodnout,na rozdělení na tři částky nebo jiné…_
