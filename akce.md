@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Relaxace a masáže
+title: Masáž a rituály...
 
 ---
  ![](/uploads/shamanic-soul-retrieval.l-1024x576.jpg)
