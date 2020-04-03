@@ -1,55 +1,42 @@
 ---
-title: Doporučení a rady
+title: Váš přístup u mne...
 layout: page
 
 ---
-Účastník lekce ...
+_Zavírejte je za sebou, žijí zde lidé, kterým dům patří…_
 
-... chodí na lekce včas s dostatečným předstihem. Prokázat, že respektovat ostatní studenty i lektorovi a nevyrušuje tak plynutí lekce.
+_Nehlučte zbytečně…._
 
-... vypíná mobilní telefon nebo zvuk i vibrace.
+_Na své podložce se chovejte tiše a s ohledem na ostatní jógující…_
 
-... nevcházíme v botách do sálu.
+_Dotazy pro mne vyjevte na začátku lekce, či na konci ,až odejde poslední spolujogující ,abychom nerušili průběh lekce a její dozvuk…_
 
-... při vstupu do budovy ztišuje hlas a pomocí seřízení klidného prostředí, aby nerušil vaše příchodem již připravené a mnohokrát v sobě zadumané spolu-jogíny na cíl cílech.
+_Víte o svém zdravotním stavu a já za něj nejsem zodpovědná…_
 
-... má přizpůsoben oděv lekci. Tedy sportovní oblečení.
+_Víte o tom,že nejsem lékař, psychiatr, psycholog ani terapeut a oba chováme k sobě vzájemný respekt…_
 
-... na lekci přichází s prázdným žaludkem. Na min. hodiny po menším jídle a dvě a více po jídle hutnějším.
+_Noste si čistý oděv a nenoste na sobě parfémy, které ruší ostatní…_
 
-... komunikuje s lektorem, když má zdravotní problémy.
+_Pokud nemáte vlastní jógamatku, zeptejte se vždy předem jestli si můžete půjčit nějakou náhradní, né všechny ve studiu jsou k dispozici…_
 
-... zneužívá špatné parfémy ani deodoranty, aby nenarušoval ostatní během dýchacích technik a meditace.
+_Nejezte nic 45 minut před lekcí…_
 
-... navštívává osobní hygienu :)
+_Neberte sebou děti do 14 let , zvířata, kamarády, rodinu apod. bez předešlé domluvy…_
 
-... nechává své ego a soutěživost za dveřmi.
+_Děti a zvířata neberte sebou nikdy…_
 
-... ví, že lektor jógy není lékař, ani psychiatr.
+_Jóga je soubor cviků, soubor dechových cvičení a očista mysli, berte prosím na vědomí, že nejste ve fitcentru ani na hřišti a ponechejte prosím soutěživost za dveřmi, nehodnoťte slovně ani jinak, žádného z účastníků lekce…_
 
-... ví, že jóga je pro každého a není schopen mít předešlé zkušenosti.
+_Není –li Vám něco v průběhu dostatečně jasné,nebojte se zeptat, všichni děláme chyby a i já jsem jen lidská bytost…_
 
-... po zůstává celou pokud a pokud a a a ob a
+_V sále nejíme a dodržujeme čistotu a hygienu…_
 
-.... nosíte vlastní objektku, nebo nepoužíváte, přijímáte ve studiu, pokud máte, máte možnost po domluvě
+_Masáže_
 
-...
+_Při masáži nemluvíme, nebo mluvíme velmi tiše…_
 
-**_Provozní řád_**   :
+_Neprovozuji žádné erotické techniky ani nenabízím žádnou službu týkající se této nabídky…_
 
-Děti ani psi v sále nemohou zůstat a čekají lekci, žádají o respektování věku nad 14 let. Hlídání není zajištěno.
+_Vážím si lidského těla a přistupuji k němu s respektem a úctou…_
 
-Každý, kdo přijde na lekci, je možné zjistit jeho zdravotní stav, lektor nezodpovídá za zdravotní stav a nenese žádnou odpovědnost za odpovědnost.
-
-Dveře studia jsou otevřenéeny vždy min. 15 minut před začátkem lekce.
-
-Každý, kdo je povinen, může přijímat pokyny instruktora Související se cvičením a vybavením. V opačném případě nenese správce rizikovosti za vzniklé úrazy nebo zranění. Jakékoli zranění je pravděpodobné instruktorovi sdělit. Během provozování sportovních aktivit není možné ohrožovat vaše zdraví, ani zdraví ostatních účastníků.
-
-... Masáže ...
-
-* Při masáži nemluvíme, nebo mluvíme tiše
-* Vyzkoušejte 45 minut před masáží nejíst nic těžkého, začínáme vaše na břiše
-* Vyzkoušejte nosit čekající částku za masáž :)
-* Odesílání zpráv - co to znamená - na masáž chodíme se záměrem hledat na uvolnění mysli a těmi, kteří jsou v sobě, ve hře Nit Nit, klidně pláčeme, kdo je pravděpodobný vydechnout nebo vydávat zvuk, kdo je masérem jiný uživatel, než -li je příjemně splnit :)
-
-Kurzovné je nevratné
+_Masáže jsou tísíce let staré techniky, které byly zapomenuty a přetransformovány chybně na cosi vyjímečného, až osobního. U masáže jsem prostředníkem energie, kterou Vy dostáváte skrze prostor a uvolnění…_
