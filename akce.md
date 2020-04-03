@@ -3,9 +3,9 @@ layout: page
 title: Masáž a rituály...
 
 ---
- ![](/uploads/shamanic-soul-retrieval.l-1024x576.jpg)
+![](/uploads/shamanic-soul-retrieval.l-1024x576.jpg)
 
-                             **_Masáž jako rituál_**
+                Masáž jako rituál
 
 _Příchodem a naladěním se na společnou cestu masáže začíná Vaše osobní relaxace._
 
