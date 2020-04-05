@@ -14,6 +14,8 @@ nebo telefonicky na 608 350 759, klidně i smskou
 
 Studio je na adrese:
 
+Nyní je provoz zcela pozastaven z důvodu nařízení vlády.
+
 Havlíčkova 31,  
 744 01 Frenštát pod Radhoštěm,  
 Česká Republika  
