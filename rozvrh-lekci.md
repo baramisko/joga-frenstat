@@ -5,7 +5,7 @@ layout: page
 ---
 ![](/uploads/Saul-Spiritual-Evolution-is-Humanity’s-Purpose-and-Intent.jpg)
 
-      _Lekce jógy jsou v plném proudu, vzhledem k situaci v online verzi skrze videa._
+  ....Lekce nyní probíhají pouze formou videa, pokud máte zájem o odkazy a o následující spojení pro lekce od Září, neváhejte mne kontaktovat...vzhledem k situaci je provozovna uzavřena
 
 _Sledujte aktualizace týkající se nových lekcí._
 
