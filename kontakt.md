@@ -47,9 +47,11 @@ Bude mi ctí s Vámi projít cestu k poznání sebe, v mužském i ženském asp
 
 Neustálá praxe, neustálé studium a touha po lepším životě pro sebe i ostatní je mým pilířem jógy, je to cesta, díky které jsem si uvědomila své tělo, svou podstatu mysli, své nároky. Nejbližším stylem je mi přes 20 let stará Aštanga a Jivamukti jóga, oba směry zdokonaluji praxí samotnou tak pod vedením učitelů.
 
-Mou  učitelkou, přítelem v józe a mentorkou jógy je [Eva Berkana](http://www.yoga-berkana.cz/), se kterou jsem absolvovala roční kurz terapeutické jógy a jógy pro děti. Jsme stále ve spojení a mé další vzdělávání v józe pokračuje pod vedením Evy.
+Mou  učitelkou, přítelem v józe a mentorkou jógy je Eva Berkana, se kterou jsem absolvovala roční kurz terapeutické jógy a jógy pro děti. Jsme stále ve spojení a mé další vzdělávání v józe pokračuje pod vedením Evy.
 
-Obrovským přínosem pro vzdělání jsou mi víkendové kurzy jógy Evy Svobodové Kizekové(www.jogasevou.cz), při kterém jsem měla možnost nahlédnout i do reflexní terapie ajurvédských masáží. Evu vnímám nejen jako učitelku, ale jako kamarádku a v kontaktu jsme i v běžném životě.
+Obrovským přínosem pro vzdělání jsou mi víkendové kurzy jógy Evy Svobodové Kizekové(www.jogasevou.cz), při kterém jsem měla možnost nahlédnout i do reflexní terapie ajurvédských masáží. 
+
+Evu vnímám nejen jako učitelku, ale jako kamarádku a v kontaktu jsme i v běžném životě.
 
 Inspirací na mé cestě je Srí Sv. Gitanánda, díky kterému se sebevzdělávám denně řadu let a je mi neustále obrovským darem, dále je to pan [Eduard Tomáš](https://cs.wikipedia.org/wiki/Eduard_Tom%C3%A1%C5%A1) a také [Srí Chinmoy](https://cs.wikipedia.org/wiki/%C5%A0r%C3%AD_%C4%8Cinmoj), jejichž slova a meditace aplikuji denně. Jsem absolventkou mnoha jógových seminářů a cest do zemí, kdy jsem měla možnost okusit pravou podstatu jógového života, jakou byl např. Nepál.
 
@@ -87,4 +89,4 @@ Aromaterapie - Zázraky duše
 
 Ayurvédská masáž a techniky - škola Ayurvédy Dr.Mazala, Krkonoše
 
-Meditace a fasciální yoga - Dambar Pan, Nepál
+Meditace a fasciální yoga,rituály - Dambar Pan, Nepál
