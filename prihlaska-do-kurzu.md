@@ -47,6 +47,8 @@ _Masáž hlavy a zábal vlasů pro růst a podporu 400,- Kč (40 minut)_
 
 _Rituál na míru v trvání cca dvou hodin 2000,- Kč – odnesete si nejen novou energii ,ale také svou vlastní esenci pro Vaši potřebu ve formě osobního oleje na míru nebo vykuřovací směsi._
 
+Rituál ,včetně masáže,očisty, ochrany a vlastní směsi na míru v době trvání cca 3 hodin s lehkým občerstvením a naladěním se v závěru meditace ( pro zcela konkrétní informace pište dotazy mailem ) 2700,- Kč
+
 _Uvedené ceny jsou zcela dobrovolné a mohou se lišit dle domluvy a individuálního přístupu._
 
 _Chcete-li na všem se domluvíme._
