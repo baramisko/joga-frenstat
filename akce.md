@@ -51,22 +51,6 @@ _Ženy ocení omlazující rituál na tvář a obličej, dekolt, krk, ruce a noh
 
 _Na olejové zábaly je nutno se objednat týden dopředu. Po zaslání dotazníku, ohledně zdravotního stavu, krevního tlaku či alergii najdeme společný termín._
 
-_Cena zábalu_
-
-_Celé tělo – 1500,- Kč ( 80 minut )_
-
-_Paže, ramena,ruce,dlaně 500,- Kč (40minut)_
-
-_Dolní končetiny včetně chodidel 450,- Kč (40 minut)_
-
-_Břicho samostatně 400,- Kč ( vhodné proti zácpám, průjmům, plynatosti, po císařském řezu…-40minut)_
-
-_Obličej, hlava, krk, dekolt 450,- Kč (40 minut)_
-
-_Záda – 450,- Kč ( celá páteř,hýždě) (40minut)_
-
-_Masáž hlavy a zábal vlasů pro růst a podporu 400,- Kč (40 minut)_
-
 ![](/uploads/gynNUe9fTCyUpQTvSSpd_shamanka_large_landscape.jpg)
 
                    Rituál na míru
