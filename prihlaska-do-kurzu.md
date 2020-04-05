@@ -3,7 +3,7 @@ title: Nabídka cen...
 layout: page
 
 ---
-     Cením si svou práci a své služby pro Vás takto
+                           ...Oceňuji svůj přístup...
 
 _Meditace na míru po mailové domluvě, toho, co Vás trápí a s čím chcete pracovat, doba trvání cca 40 minut 350,- Kč, odesláno v hlasové formě pouze pro Vás._
 
