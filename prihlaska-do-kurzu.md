@@ -3,9 +3,7 @@ title: Nabídka cen...
 layout: page
 
 ---
-    .Oceňuji svůj přístup, zkušenosti a spokojenost klientů takto...
-
-_Meditace na míru po mailové domluvě, toho, co Vás trápí a s čím chcete pracovat, doba trvání cca 40 minut 350,- Kč, odesláno v hlasové formě pouze pro Vás._
+Mé ceny, uvedeny zde, jsou pro Vás ode mne, tak jak si vážím své práce, individuální přístup, zkušenosti a ohlasy spokojených klientů jsou toho důkazem :)
 
 _Jógová sestava na doma, na míru, ve video formátu s odkazem pouze pro Vás doba trvání 50 minut – 400,- Kč s relaxací doba trvání 75 minut – 500,- Kč_
 
