@@ -58,3 +58,5 @@ _Kurzovné je nevratné po odchození tří lekcí v plné výši…_
 _Máte dostatek času přijít na to, zda-li Vám můj přístup vyhovuje či nikoli…_
 
 _Vyjímky cen lze po domluvě dohodnout,na rozdělení na tři částky nebo jiné…_
+
+![](/uploads/57fbb7ebfd1817b342675a8ebc96cdd1.jpg)
