@@ -37,6 +37,8 @@ _Pracuji především s technikami Ajurvédy a reflexními technikami._
 
 _Uleví se všem, kdo úlevu potřebuje._
 
+![](/uploads/diwaliposterimage-1.webp)
+
 **_Olejové zábaly_**
 
 _Olej se dokáže ve své účinnosti vstřebat až do kostí, až do nervového zakončení a všech koutů našeho těla._
