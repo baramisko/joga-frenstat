@@ -1,5 +1,5 @@
 ---
-title: 'Lekce jógy '
+title: Terapie jógy...
 layout: page
 
 ---
