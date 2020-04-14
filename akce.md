@@ -3,9 +3,7 @@ layout: page
 title: Masáže a rituály...
 
 ---
-![](/uploads/216-2165067_hands-png-health-pinterest-massage-drawing-transparent-png.jpg)
-
-Masáž ,jako rituál...
+![](/uploads/diwaliposterimage-1.webp)Masáž ,jako rituál...
 
 _Příchodem a naladěním se na společnou cestu masáže začíná Vaše osobní relaxace._
 
@@ -37,7 +35,7 @@ _Pracuji především s technikami Ajurvédy a reflexními technikami._
 
 _Uleví se všem, kdo úlevu potřebuje._
 
-![](/uploads/diwaliposterimage-1.webp)
+![](/uploads/216-2165067_hands-png-health-pinterest-massage-drawing-transparent-png.jpg)
 
 **_Olejové zábaly_**
 
