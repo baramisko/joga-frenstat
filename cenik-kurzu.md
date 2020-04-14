@@ -3,9 +3,7 @@ title: O Báře
 layout: page
 
 ---
-Kdo je Bára? ví jen bůh a ona, něco mezi nebem a zemí :) ale představu si žádáš
-
-![/uploads/BeFunky-collage (11).jpg](https://app.forestry.io/sites/fjcnawipn-qwwg/body-media//uploads/BeFunky-collage%20(11).jpg)
+Kdo je Bára? ví jen bůh a ona, něco mezi nebem a zemí :) ale představa....
 
 ![](/uploads/BeFunky-collage (12).jpg)
 
