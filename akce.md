@@ -3,6 +3,7 @@ layout: page
 title: Masáže a rituály...
 
 ---
+![](/uploads/216-2165067_hands-png-health-pinterest-massage-drawing-transparent-png.jpg)
 
 Masáž ,jako rituál...
 
