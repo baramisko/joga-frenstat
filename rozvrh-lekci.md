@@ -1,5 +1,5 @@
 ---
-title: Terapie jógy...
+title: Terapie jógou...
 layout: page
 
 ---
