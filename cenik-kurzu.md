@@ -3,7 +3,7 @@ title: O Báře
 layout: page
 
 ---
-Kdo je Bára? ví jen bůh a ona, něco mezi nebem a zemí :) ale představa....
+Kdo je Bára? ví jen bůh a ona, něco mezi nebem a zemí :) ale představa....studium a povídání viz ,,kontakt,,
 
 ![](/uploads/BeFunky-collage (12).jpg)
 
