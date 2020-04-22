@@ -14,3 +14,5 @@ _V nabídce nás čeká v novém školním roce Hatha Yoga, Asthanga Yoga, Prana
 _Ceny za lekce budou upřesněny, až se lidstvo navrátí do běžného procesu zdraví._
 
 _Namasté_
+
+![](/uploads/diwaliposterimage-1.webp)
