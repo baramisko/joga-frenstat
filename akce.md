@@ -61,7 +61,7 @@ _Pokud toužíte po odstranění napětí nejen z těla, ale i mysli, lze se dom
 
 _Rituál byl a zase je běžnou součástí života, ne jen šamanů či zaříkávačů._
 
-_Rituál pro očistu, ochranu, pro znovuobnovení síly, pro to abyste přítahli do svého života co si přejete a nebo to, co zrovna ve svém životě řešíte…_
+_Rituál pro očistu, ochranu, pro znovuobnovení síly, pro to abyste přitáhli do svého života co si přejete a nebo to, co zrovna ve svém životě řešíte…_
 
 _Rituál je sestaven na míru po předešlé mailové komunikaci, toho, co přesně Vy potřebujete._
 
