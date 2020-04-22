@@ -3,7 +3,9 @@ layout: page
 title: Masáže a rituály...
 
 ---
-![](/uploads/diwaliposterimage-1.webp)Masáž ,jako rituál...
+![](/uploads/christin-hume-505815-unsplash_190205_120818_db737ff7685c62369a0cef2c0fbf3c3a.jpg)
+
+Masáž ,jako rituál...
 
 _Příchodem a naladěním se na společnou cestu masáže začíná Vaše osobní relaxace._
 
@@ -63,6 +65,8 @@ _Rituál pro očistu, ochranu, pro znovuobnovení síly, pro to abyste přítahl
 
 _Rituál je sestaven na míru po předešlé mailové komunikaci, toho, co přesně Vy potřebujete._
 
-_Provázím jak vykuřovacími technikami, očistou oleji, aromaterapií, meditací, zpěvem manter, stahování negace…_
+_Provázím jak vykuřovadly, očistou oleji, aromaterapií, meditací, zpěvem manter, stahování negace…_
 
 _Nebojte se odhodit své strachy a nejistoty, společně se můžeme pustit do světa s čistým a pevným duchem._
+
+![](/uploads/The-Art-of-Smudging.jpg)
