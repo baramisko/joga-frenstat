@@ -7,6 +7,8 @@ Pár videií pro radost a isnpiraci a také motivaci
 
 [https://youtu.be/p3Z4GuftV1k](https://youtu.be/p3Z4GuftV1k "https://youtu.be/p3Z4GuftV1k") variace bojovníků
 
+[https://youtu.be/YAjFyi2YbIY](https://youtu.be/YAjFyi2YbIY "https://youtu.be/YAjFyi2YbIY") když se špatně vyspíme
+
 ....Lekce nyní probíhají pouze formou videa, pokud máte zájem o odkazy a o následující spojení pro lekce od Září, neváhejte mne kontaktovat...vzhledem k situaci je provozovna uzavřena
 
 _Sledujte aktualizace týkající se nových lekcí._
