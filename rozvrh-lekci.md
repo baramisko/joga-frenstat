@@ -1,19 +1,11 @@
 ---
-title: Terapie jógou...
+title: Jóga...
 layout: page
 
 ---
-Pár videí jako pomoc, inspirace a motivace zde:
+Pár videií pro radost a isnpiraci a také motivaci
 
-[https://youtu.be/YAjFyi2YbIY](https://youtu.be/YAjFyi2YbIY "https://youtu.be/YAjFyi2YbIY") pro pokročilé v praxi dechu
-
-[https://youtu.be/REY6pi9NidM](https://youtu.be/REY6pi9NidM  "https://youtu.be/REY6pi9NidM") Hatha Yoga
-
-[https://www.youtube.com/watch?v=bZFXRnvtmqU](https://www.youtube.com/watch?v=bZFXRnvtmqU  "https://www.youtube.com/watch?v=bZFXRnvtmqU") proti zkrácení a intenzivní protažení
-
-[https://www.youtube.com/watch?v=rZqAbntxdX8](https://www.youtube.com/watch?v=rZqAbntxdX8 "https://www.youtube.com/watch?v=rZqAbntxdX8") Imunita
-
-[https://youtu.be/p3Z4GuftV1k](https://youtu.be/p3Z4GuftV1k "https://youtu.be/p3Z4GuftV1k") variace Bojovníků
+[https://youtu.be/p3Z4GuftV1k](https://youtu.be/p3Z4GuftV1k "https://youtu.be/p3Z4GuftV1k") variace bojovníků
 
 ....Lekce nyní probíhají pouze formou videa, pokud máte zájem o odkazy a o následující spojení pro lekce od Září, neváhejte mne kontaktovat...vzhledem k situaci je provozovna uzavřena
 
