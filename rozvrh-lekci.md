@@ -9,6 +9,10 @@ Pár videií pro radost a isnpiraci a také motivaci
 
 [https://youtu.be/YAjFyi2YbIY](https://youtu.be/YAjFyi2YbIY "https://youtu.be/YAjFyi2YbIY") když se špatně vyspíme
 
+[https://youtu.be/REY6pi9NidM](https://youtu.be/REY6pi9NidM "https://youtu.be/REY6pi9NidM") Hatha yoga
+
+[https://youtu.be/rZqAbntxdX8](https://youtu.be/rZqAbntxdX8 "https://youtu.be/rZqAbntxdX8") pro posílení imunity
+
 ....Lekce nyní probíhají pouze formou videa, pokud máte zájem o odkazy a o následující spojení pro lekce od Září, neváhejte mne kontaktovat...vzhledem k situaci je provozovna uzavřena
 
 _Sledujte aktualizace týkající se nových lekcí._
