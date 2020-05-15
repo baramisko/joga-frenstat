@@ -16,7 +16,7 @@ Světa energií
 
 Světa, kde se eliminuje napětí, stres, strach, nemoce…
 
-Mým domovem je příroda, les, chaloupka v něm, potok, dvě kočky, můj muž, má rodina, klid a učení se k navrácení se k sobě, do nitra.
+Mým domovem je příroda, les, chaloupka v něm, potok, tři kočky, můj muž, má rodina, klid a učení se k navrácení se k sobě, do nitra.
 
 Bude mi ctí s Vámi projít cestu k poznání sebe, v mužském i ženském aspektu.
 
