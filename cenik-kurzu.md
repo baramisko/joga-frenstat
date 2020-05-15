@@ -41,6 +41,20 @@ Na mé cestě se neustále vzdělávám. Jóga není jen o asánách,neboli o t�
 
 Mým každodenním chlebem v józe je cesta Patanjalího a jógasuter,které mi ucelují životní pouť.
 
+Pokud Vám to přece jen nedá a chcete vědět, co jsem studovala či který kurz mám hotov tak prosím :
+
+Asthanga yoga - Dimitris Dibelo a Sr. K. Pattabhi Jois
+
+Terapeutická jóga,Bihárska škola -Eva Berkana
+
+Jivamukti yoga for master class - Jules Febre
+
+Aromaterapie - Zázraky duše
+
+Ayurvédská masáž a techniky - škola Ayurvédy Dr.Mazala, Krkonoše
+
+Meditace a fasciální yoga,rituály - Dambar Pan, Nepál
+
 ![](/uploads/BeFunky-collage (6).jpg)
 
 ![](/uploads/BeFunky-collage (4).jpg)
