@@ -3,7 +3,6 @@ title: O Báře
 layout: page
 
 ---
-Kdo je Bára? ví jen bůh a ona, něco mezi nebem a zemí :) ale představa....O mně a mně
 
 Celý život kroužím okolo vůní, energií, péče o těla a ducha a tak jsem po letech v sociálních službách, práce s dětmi, lidmi, se závislými na různých vnějších vjemů opustila instituty a vrhla se do vlastního světa.
 
