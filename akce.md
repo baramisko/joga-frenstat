@@ -9,7 +9,7 @@ Masáž ,jako rituál...
 
 _Příchodem a naladěním se na společnou cestu masáže začíná Vaše osobní relaxace._
 
-_Masáž jako rituál spočívá v odstranění všech blokád, co dovolíme._
+_Masáž jako rituál spočívá v odstranění všech blokád a bolesti._
 
 _Do čistého prostředí, hygienicky a energeticky očištěného společně necháme vstoupit uvolnění a relaxaci._
 
