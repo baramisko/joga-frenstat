@@ -14,8 +14,6 @@ nebo telefonicky na 608 350 759, klidně i smskou
 
 Studio je na adrese:
 
-Nyní je provoz zcela pozastaven z důvodu nařízení vlády.
-
 Havlíčkova 31,  
 744 01 Frenštát pod Radhoštěm,  
 Česká Republika  
@@ -49,7 +47,7 @@ Neustálá praxe, neustálé studium a touha po lepším životě pro sebe i ost
 
 Mou  učitelkou, přítelem v józe a mentorkou jógy je Eva Berkana, se kterou jsem absolvovala roční kurz terapeutické jógy a jógy pro děti. Jsme stále ve spojení a mé další vzdělávání v józe pokračuje pod vedením Evy.
 
-Obrovským přínosem pro vzdělání jsou mi víkendové kurzy jógy Evy Svobodové Kizekové(www.jogasevou.cz), při kterém jsem měla možnost nahlédnout i do reflexní terapie ajurvédských masáží. 
+Obrovským přínosem pro vzdělání jsou mi víkendové kurzy jógy Evy Svobodové Kizekové(www.jogasevou.cz), při kterém jsem měla možnost nahlédnout i do reflexní terapie ajurvédských masáží.
 
 Evu vnímám nejen jako učitelku, ale jako kamarádku a v kontaktu jsme i v běžném životě.
 
