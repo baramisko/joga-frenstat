@@ -3,6 +3,8 @@ title: Jóga...
 layout: page
 
 ---
+![](/uploads/IMG_20190730_104235_826.jpg)
+
 Pár videií pro radost a isnpiraci a také motivaci
 
 [https://youtu.be/p3Z4GuftV1k](https://youtu.be/p3Z4GuftV1k "https://youtu.be/p3Z4GuftV1k") variace bojovníků
