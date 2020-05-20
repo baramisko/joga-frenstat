@@ -3,7 +3,7 @@ title: Váš přístup u mne...
 layout: page
 
 ---
-![](/uploads/flower-750-300.jpg)
+![](/uploads/gettyimages-655101628-612x612.jpg)
 
 _Vcházíte –li do studia na lekci jógy, prosím vcházejte již ode dveří vstupních dole potichu…._
 
