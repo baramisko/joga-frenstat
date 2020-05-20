@@ -1,5 +1,5 @@
 ---
-title: Váš přístup u mne...
+title: Váš přístup ve studiu...
 layout: page
 
 ---
