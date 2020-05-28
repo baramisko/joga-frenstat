@@ -17,13 +17,13 @@ Pár videií pro radost a isnpiraci a také motivaci
 
 [https://youtu.be/rZqAbntxdX8](https://youtu.be/rZqAbntxdX8 "https://youtu.be/rZqAbntxdX8") pro posílení imunity
 
-....Lekce nyní probíhají pouze formou videa, pokud máte zájem o odkazy a o následující spojení pro lekce od Září, neváhejte mne kontaktovat...vzhledem k situaci je provozovna uzavřena
+Aktuálně chystané kurzy a workshopy -
 
-_Sledujte aktualizace týkající se nových lekcí._
+Srpen - tří hodinový workshop intenzivní vědomé jógy, přihlásit se můžete mailem bara.nyja@seznam.cz, vhodné pro již kurzisty na opakování lekcí před startem nového roku a také pro začátečníky jako první ,,návod,, a taky první nakouknutí než se rozhodnete zaplatit a chodit do kurzu.
 
-_V nabídce nás čeká v novém školním roce Hatha Yoga, Asthanga Yoga, Pranajáma, Ranní Flow a Core Power._
+cena 350,- Kč termín workshopu 23.8.2020 od 8:30 do cca 11:30, v ceně je i společný oběd v podobě vegetariánské jídla.
 
-_Ceny za lekce budou upřesněny, až se lidstvo navrátí do běžného procesu zdraví._
+Počet míst 10- k dispozici 10
 
 _Namasté_
 
