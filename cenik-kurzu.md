@@ -23,7 +23,11 @@ Bude mi ctí s Vámi projít cestu k poznání sebe, v mužském i ženském asp
 
 Neustálá praxe, neustálé studium a touha po lepším životě pro sebe i ostatní je mým pilířem jógy, je to cesta, díky které jsem si uvědomila své tělo, svou podstatu mysli, své nároky. Nejbližším stylem je mi přes 20 let stará Aštanga a Jivamukti jóga, oba směry zdokonaluji praxí samotnou tak pod vedením učitelů.
 
-Mou učitelkou, přítelem v józe a mentorkou jógy je Eva Berkana, se kterou jsem absolvovala roční kurz terapeutické jógy a jógy pro děti. Jsme stále ve spojení a mé další vzdělávání v józe pokračuje částečně pod vedením Evy.
+Vzdělání se v oboru neberu skokově dle kurzů ale především celoživotně a komplexně. Jestliže jsem absolvovala kurz Hatha Yoga,neznamená to nutně,že jsem lektorem Hatha Yoga, velice si vážím sebevzdělání a nespím na vavřínech :)
+
+Jedním z mých učitelů je učitelkou, přítelem v józe a mentorkou jógy je Eva Berkana, se kterou jsem absolvovala roční kurz terapeutické jógy a jógy pro děti.
+
+ Jsme stále ve spojení a mé další vzdělávání v józe pokračuje částečně pod vedením Evy.
 
 Obrovským přínosem pro vzdělání jsou mi víkendové kurzy jógy Evy Svobodové Kizekové(www.jogasevou.cz), při kterém jsem měla možnost nahlédnout i do reflexní terapie ajurvédských masáží.
 
@@ -47,11 +51,11 @@ Terapeutická jóga,Bihárska škola -Eva Berkana
 
 Jivamukti yoga for master class - Jules Febre
 
-Aromaterapie - Zázraky duše
+Aromaterapie - Zázraky duše 
 
 Ayurvédská masáž a techniky - škola Ayurvédy Dr.Mazala, Krkonoše
 
-Meditace a fasciální yoga,rituály - Dambar Pan, Nepál
+Meditace a fasciální yoga,rituály,Spinal Yoga - Dambar Pan, Nepál 1 měsíc intenzivně
 
 ![](/uploads/BeFunky-collage (6).jpg)
 
