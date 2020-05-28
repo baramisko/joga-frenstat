@@ -3,7 +3,7 @@ layout: page
 title: Vítej...
 
 ---
-_...S ohledem na situaci jsou pozastaveny mé služby v provozu studia, neváhejte mne však kontaktovat ohledně mého individuální provozu skrze mail,videa..._
+_...S ohledem na situaci jsou pozastaveny mé služby v provozu studia. Pro aktualizace pište na mail, či sledujete sekci Jóga_
 
 ![](/uploads/BeFunky-collage (2).jpg)
 
