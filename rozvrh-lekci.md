@@ -25,6 +25,8 @@ cena 350,- Kč termín workshopu 23.8.2020 od 8:30 do cca 11:30, v ceně je i sp
 
 Počet míst 10- k dispozici 10
 
+Pobyt na Antariku v prodlouženém víkendu, nebo dle možnosti příjezdu odkaz a informace zde -[https://docs.google.com/document/d/1h4uTW96i3g-T20Gl6gDAzQMcrtNNMdpU8jylNCCuXIY/edit](https://docs.google.com/document/d/1h4uTW96i3g-T20Gl6gDAzQMcrtNNMdpU8jylNCCuXIY/edit "https://docs.google.com/document/d/1h4uTW96i3g-T20Gl6gDAzQMcrtNNMdpU8jylNCCuXIY/edit") doporučuji rezervaci o pobyt je zájem, budeme ale menší skupina v nádherném prostředí a v nových zrekonstruovaných pokojích.
+
 _Namasté_
 
 ![](/uploads/diwaliposterimage-1.webp)
