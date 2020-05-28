@@ -7,6 +7,8 @@ layout: page
 
 Pár videií pro radost a isnpiraci a také motivaci
 
+[https://youtu.be/bbuz5wgc78Q](https://youtu.be/bbuz5wgc78Q "https://youtu.be/bbuz5wgc78Q") nejen ranní protažení,krátce
+
 [https://youtu.be/p3Z4GuftV1k](https://youtu.be/p3Z4GuftV1k "https://youtu.be/p3Z4GuftV1k") variace bojovníků
 
 [https://youtu.be/YAjFyi2YbIY](https://youtu.be/YAjFyi2YbIY "https://youtu.be/YAjFyi2YbIY") když se špatně vyspíme
