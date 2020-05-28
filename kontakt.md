@@ -87,4 +87,4 @@ Aromaterapie - Zázraky duše
 
 Ayurvédská masáž a techniky - škola Ayurvédy Dr.Mazala, Krkonoše
 
-Meditace a fasciální yoga,rituály - Dambar Pan, Nepál
+Meditace a fasciální yoga,rituály,spina yoga - Dambar Pan, Nepál intenzivní měsíc
