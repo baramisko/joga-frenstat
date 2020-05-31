@@ -7,6 +7,8 @@ Mé ceny, uvedeny zde, jsou pro Vás ode mne, tak jak si vážím své práce, i
 
 **_Milí mojí navštěvující lekce, máte vždy o 100 Kč méně z cen uvedených._**
 
+Po domluvě hodinová masáž 650,-
+
 **_Masáž_** **_90 minut_** _( Základní )_
 
 _750,- Kč_
