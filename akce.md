@@ -55,7 +55,7 @@ _Na olejové zábaly je nutno se objednat týden dopředu. Po zaslání dotazní
 
 ![](/uploads/gynNUe9fTCyUpQTvSSpd_shamanka_large_landscape.jpg)
 
-                   Rituál na míru
+...Rituály na míru...
 
 _Pokud toužíte po odstranění napětí nejen z těla, ale i mysli, lze se domluvit na individuálním rituálu, který trvá cca dvě hodiny času._
 
