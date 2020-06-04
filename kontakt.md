@@ -7,7 +7,9 @@ Pár milých slov ,spokojených klientů jógy a masáží...
 
 ,,Jóga s Bárou je rozhodne jedna z najzmysluplnějších vecí,ktoré vykonávám pre svoje telo a ducha! Barča vždy vykúzlí dokonalú rovnováhu medzi cvičením a relaxaciou, takže po treningu mám telo unavené a mysel oddýchnutú. Bolesti ktoré ma trápili miznú a telo cítí aj svaly o ktorých ani nevedelo. Okrem toho je Barča úžasná lektorka s obrovyským srdcom čo je poznať na prístupe a doslova ním zlepší deň. Ďakujem! A chalani! S Barčou sa nebude cítit ako srágory, to Vám garantujem!,, Palo Š.
 
-,,Jóga s Barunkou je jednoduše skvělá. Bára je citlivá, vysoce profesionální, na pochopení všech asán má člověk dost času. Její hlas je uklidňující, oduševnělý, konejšivý, má v sobě něco magického...taková jóga jakou vede není jen sestavou fyzického cvičení, člověk dochází s pocitem přidané hodnoty, dotkl se duchovních sfér.,, J.J
+,,Jóga s Barunkou je jednoduše skvělá. Bára je citlivá, vysoce profesionální, na pochopení všech asán má člověk dost času. Její hlas je uklidňující, oduševnělý, konejšivý, má v sobě něco magického...taková jóga jakou vede není jen sestavou fyzického cvičení, člověk dochází s pocitem přidané hodnoty, dotkl se duchovních sfér.,, J.J.
+
+,,Byl jsem uvítán v místnosti, která voněla, zapálené svíčky a příjemná atmosféra, při masáži se o mne starala tak,aby mi nebylo teplo,což je pro masáž velmi důležité. 
 
 Informace ,, o mně,, dole na stránce
 
