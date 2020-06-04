@@ -9,7 +9,7 @@ Pár milých slov ,spokojených klientů jógy a masáží...
 
 ,,Jóga s Barunkou je jednoduše skvělá. Bára je citlivá, vysoce profesionální, na pochopení všech asán má člověk dost času. Její hlas je uklidňující, oduševnělý, konejšivý, má v sobě něco magického...taková jóga jakou vede není jen sestavou fyzického cvičení, člověk dochází s pocitem přidané hodnoty, dotkl se duchovních sfér.,, J.J.
 
-,,Byl jsem uvítán v místnosti, která voněla, zapálené svíčky a příjemná atmosféra, při masáži se o mne starala tak,aby mi nebylo teplo,což je pro masáž velmi důležité. 
+,,Byl jsem uvítán v místnosti, která voněla, zapálené svíčky a příjemná atmosféra, při masáži se o mne starala tak,aby mi nebylo teplo,což je pro masáž velmi důležité. Citlivá ,relaxační hudba, doprovodila a umocnila atmosféru ještě více.Masáž byla opravdu poctivá, voňavá, odcházela jsem jako nový člověk, tak krásně strávenou hodinu doporučuji vřele všem.,, K.J.
 
 Informace ,, o mně,, dole na stránce
 
