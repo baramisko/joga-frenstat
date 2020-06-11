@@ -37,6 +37,16 @@ Jóga proti bolesti - vedená individuálněji i pro zraněné osoby
 
 Ranní Flow Pranayma Jóga
 
+Kurzy ,které můžete pomaličku začít rezervovat a přemýšlet ,který zvolit -
+
+Úterý -16:15 Jóga pro zdravá záda
+
+Úterý - 17:15 Vědomá jóga - pro již praktikující, kteří se chtějí posouvat dále ve své jógové praxi
+
+Čtvrtek - 17:15 Jóga proti bolesti
+
+               18:30 Asthanga Vinjása 
+
 _Namasté_
 
 ![](/uploads/diwaliposterimage-1.webp)
