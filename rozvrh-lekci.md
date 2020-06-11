@@ -31,11 +31,15 @@ Září:
 
 Kurzy ,které můžete pomaličku začít rezervovat a přemýšlet ,který zvolit -
 
-Úterý -16:15 Jóga proti bolesti , zdravá záda
+Pondělí - Ranní jógová praxe 6:00 (otevřená lekce pro všechny)
 
-Úterý - 17:15 Vědomá jógová praxe - pro již praktikující, kteří se chtějí posouvat dále ve své jógové praxi
+Úterý -16:15 Jóga proti bolesti , zdravá záda.
 
-Čtvrtek - 17:15 Jóga proti bolesti, zdravá záda
+Úterý - 17:15 Vědomá jógová praxe - pro již praktikující, kteří se chtějí posouvat dále ve své jógové praxi,tento kurz může být i pro začátečníky, kteří chtějí ne jen ,,cvičit,,.
+
+Středa - 8:00 Ranní jógová praxe ( otevřená lekce pro všechny )
+
+Čtvrtek - 17:15 Jóga proti bolesti, zdravá záda.
 
 _Namasté_
 
