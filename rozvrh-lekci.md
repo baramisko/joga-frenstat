@@ -27,7 +27,7 @@ Počet míst 10- k dispozici 10
 
 Pobyt na Antariku v prodlouženém víkendu, nebo dle možnosti příjezdu odkaz a informace zde -[https://docs.google.com/document/d/1h4uTW96i3g-T20Gl6gDAzQMcrtNNMdpU8jylNCCuXIY/edit](https://docs.google.com/document/d/1h4uTW96i3g-T20Gl6gDAzQMcrtNNMdpU8jylNCCuXIY/edit "https://docs.google.com/document/d/1h4uTW96i3g-T20Gl6gDAzQMcrtNNMdpU8jylNCCuXIY/edit") doporučuji rezervaci o pobyt je zájem, budeme ale menší skupina v nádherném prostředí a v nových zrekonstruovaných pokojích.
 
-Září:
+##                  Září
 
 Kurzy ,které můžete pomaličku začít rezervovat a přemýšlet ,který zvolit -
 
