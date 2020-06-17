@@ -27,15 +27,15 @@ Počet míst 10- k dispozici 10
 
 Pobyt na Antariku v prodlouženém víkendu, nebo dle možnosti příjezdu odkaz a informace zde -[https://docs.google.com/document/d/1h4uTW96i3g-T20Gl6gDAzQMcrtNNMdpU8jylNCCuXIY/edit](https://docs.google.com/document/d/1h4uTW96i3g-T20Gl6gDAzQMcrtNNMdpU8jylNCCuXIY/edit "https://docs.google.com/document/d/1h4uTW96i3g-T20Gl6gDAzQMcrtNNMdpU8jylNCCuXIY/edit") doporučuji rezervaci o pobyt je zájem, budeme ale menší skupina v nádherném prostředí a v nových zrekonstruovaných pokojích.
 
-##                  Září
+## Září
 
 Kurzy ,které můžete pomaličku začít rezervovat a přemýšlet ,který zvolit -
 
 Pondělí - Ranní jógová praxe 6:00 (otevřená lekce pro všechny) vstupné 100 Kč,-.Pro navštěvující jakýkoliv kurz 90,-Kč
 
-Úterý -16:15 Jóga proti bolesti , zdravá záda.
+Úterý - 16:15 Jóga proti bolesti, zdravá záda
 
-Září-Říjen : 9 lekcí 1150,- Kč
+Září-Říjen: 9 lekcí 1150,-Kč
 
 Úterý - 17:15 Vědomá jógová praxe - pro již praktikující, kteří se chtějí posouvat dále ve své jógové praxi,tento kurz může být i pro začátečníky, kteří chtějí ne jen ,,cvičit,,.
 
