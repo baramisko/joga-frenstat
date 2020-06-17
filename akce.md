@@ -21,8 +21,6 @@ _Masáž trvá hodinu a půl. Hodinové masáže jen v akutních případech bez
 
 _Po domluvě lze masírovat i vlasy a hlavu teplým olejem dle ajurvédské techniky._
 
-_Pokud cítíte potřebu odstranit blokády více a chcete odcházet srovnaní i ve svém těle, po dohodě můžeme na konci masáže použít krystaly pro rovnováhu._
-
 _V mém přístupu si lidé váží především individuality, jemnosti a zároveň uvolnění svalů i kloubů._
 
 _Čeká Vás příjemné prostředí v podkroví, přítmí a muzika naladěná na hluboké uvolnění._
