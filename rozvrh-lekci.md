@@ -31,15 +31,15 @@ Pobyt na Antariku v prodlouženém víkendu, nebo dle možnosti příjezdu odkaz
 
 Kurzy ,které můžete pomaličku začít rezervovat a přemýšlet ,který zvolit -
 
-Pondělí - Ranní jógová praxe 6:00 (otevřená lekce pro všechny) vstupné 100 Kč,-.Pro navštěvující jakýkoliv kurz 90,-Kč
+**Pondělí** - Ranní jógová praxe 6:00 (otevřená lekce pro všechny) vstupné 100 Kč,-.Pro navštěvující jakýkoliv kurz 90,-Kč
 
-Úterý - 17:15 Vědomá jógová praxe - pro již praktikující, kteří se chtějí posouvat dále ve své jógové praxi,tento kurz může být i pro začátečníky, kteří chtějí ne jen ,,cvičit,,.
+**Úterý** - 17:15 Vědomá jógová praxe - pro již praktikující, kteří se chtějí posouvat dále ve své jógové praxi,tento kurz může být i pro začátečníky, kteří chtějí ne jen ,,cvičit,,.
 
 Září-Říjen : 9 lekcí 1200,- Kč
 
-Středa - 8:00 Ranní jógová praxe ( otevřená lekce pro všechny ) vstupné 100,- Kč. Pro navštěvující jakýkoliv kurz 90,- Kč
+**Středa** - 8:00 Ranní jógová praxe ( otevřená lekce pro všechny) vstupné 100,- Kč. Pro navštěvující jakýkoliv kurz 90,- Kč
 
-Čtvrtek - 16:15 Jóga proti bolesti, zdravá záda.
+**Čtvrtek** - 16:15 Jóga proti bolesti, zdravá záda.
 
 Září-Říjen: 9 lekcí 1150,-Kč
 
