@@ -17,6 +17,8 @@ Pár videií pro radost a isnpiraci a také motivaci
 
 [https://youtu.be/rZqAbntxdX8](https://youtu.be/rZqAbntxdX8 "https://youtu.be/rZqAbntxdX8") pro posílení imunity
 
+[https://youtu.be/L3eSIDCFzmk](https://youtu.be/L3eSIDCFzmk  "https://youtu.be/L3eSIDCFzmk") Asthanga Yoga venku s kočkami i ještěrkami zcela autenticky :)
+
 Aktuálně chystané kurzy a workshopy a pobyty -
 
 ## **Srpen**
@@ -39,7 +41,7 @@ Kurzy ,které můžete pomaličku začít rezervovat a přemýšlet ,který zvol
 
 Září-Říjen : 9 lekcí 1200,- Kč
 
-**Středa** - 8:00 Ranní jógová praxe ( otevřená lekce pro všechny) vstupné 100,- Kč. Pro navštěvující jakýkoliv kurz 90,- Kč 
+**Středa** - 8:00 Ranní jógová praxe ( otevřená lekce pro všechny) vstupné 100,- Kč. Pro navštěvující jakýkoliv kurz 90,- Kč
 
 **Čtvrtek** - 16:15 Jóga proti bolesti, zdravá záda. 14 volných míst
 
