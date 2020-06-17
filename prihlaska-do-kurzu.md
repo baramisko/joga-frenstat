@@ -13,13 +13,9 @@ Po domluvě hodinová masáž 650,-
 
 _750,- Kč_
 
-_práce s krystaly na závěr 150,- Kč navíc_
-
 **_Masáž 120 minut_** _( Prodloužená )_
 
 _1100,- Kč_
-
-_práce s krystaly na závěr navíc 150,- Kč_
 
 _Celý rituál s očistou , ochranou na závěr, s teplým olejem tekoucím po čele a prací s krystaly, včetně zcela hlubinné masáže ajurvédskými technikami v trvání 90 minut_
 
