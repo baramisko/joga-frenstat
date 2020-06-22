@@ -47,6 +47,8 @@ Září-Říjen : 9 lekcí 1200,- Kč
 
 Září-Říjen: 9 lekcí 1150,-Kč
 
-_Namasté_
+**Čtvrtek dle zájmu 17:30 lekce jógy**
+
+**_Namasté_**
 
 ![](/uploads/diwaliposterimage-1.webp)
