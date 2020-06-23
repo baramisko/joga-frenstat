@@ -3,7 +3,9 @@ title: Nabídka cen...
 layout: page
 
 ---
-Vždy přistupuji individuálně ke klientovi a jeho potřebám v daném stavu a momentu. Nejsem jen masérka nebo jogínka, ale hlavně lidská bytost, která vnímá potřeby druhých.
+Vždy se snažím přistupovat individuálně ke klientovi a jeho potřebám v daném stavu a momentu. 
+
+Nejsem jen masérka nebo jogínka, ale hlavně lidská bytost, která vnímá potřeby druhých.
 
 Nečekejte ode mne tedy sestavenou tabulkou cen od do za to a tamto :)
 
