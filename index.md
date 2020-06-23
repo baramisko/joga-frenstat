@@ -3,7 +3,6 @@ layout: page
 title: Vítej...
 
 ---
-_...S ohledem na situaci jsou služby v omezeném provozu, pro informace mne neváhejte kontaktovat..._
 
 ![](/uploads/BeFunky-collage (2).jpg)
 
