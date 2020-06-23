@@ -59,7 +59,7 @@ _Chcete-li na všem se domluvíme._
 
 _Peníze od Vás přijímám zcela dobrovolně ,stejně jako Vy mi je dáváte za účelem dobrovolného dárku._
 
-_Kurzovné je nevratné po odchození tří lekcí v plné výši…_
+_Kurzovné je nevratné po od-chození tří lekcí v plné výši…_
 
 _Máte dostatek času přijít na to, zda-li Vám můj přístup vyhovuje či nikoli…_
 
