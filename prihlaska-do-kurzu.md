@@ -3,7 +3,13 @@ title: Nabídka cen...
 layout: page
 
 ---
-Mé ceny, uvedeny zde, jsou pro Vás ode mne, tak jak si vážím své práce, individuální přístup, zkušenosti a ohlasy spokojených klientů jsou toho důkazem :)
+Vždy přistupuji individuálně ke klientovi a jeho potřebám v daném stavu a momentu. Nejsem jen masérka nebo jogínka, ale hlavně lidská bytost, která vnímá potřeby druhých.
+
+Nečekejte ode mne tedy sestavenou tabulkou cen od do za to a tamto :)
+
+Vždy je na prvním místě potřeba Vás , jste -li unavení fyzicky, psychicky, či obojí. Dohodneme se předem, jestli strávíme čas masáží, nebo povídáním, meditací či terapií, ceny jsou uvedeny tedy hlavně po minutách. 
+
+Samozřejmě ,kdo chce výhradně masáž, dostane beze slov masáž :)
 
 **_Milí mojí navštěvující lekce, máte vždy o 100 Kč méně z cen uvedených._**
 
