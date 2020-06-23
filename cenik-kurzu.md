@@ -15,7 +15,7 @@ Světa energií
 
 Světa, kde se eliminuje napětí, stres, strach, nemoce…
 
-Mým domovem je příroda, les, chaloupka v něm, potok, tři kočky, můj muž, má rodina, klid a učení se k navrácení se k sobě, do nitra.
+Mým domovem je příroda, les, chaloupka v něm, potok, tři kočky( někdy sedm..), můj muž, má rodina, klid a učení se k navrácení se k sobě, do nitra.
 
 Bude mi ctí s Vámi projít cestu k poznání sebe, v mužském i ženském aspektu.
 
@@ -27,7 +27,9 @@ Vzdělání se v oboru neberu skokově dle kurzů ale především celoživotně
 
 Jedním z mých učitelů je učitelkou, přítelem v józe a mentorkou jógy je Eva Berkana, se kterou jsem absolvovala roční kurz terapeutické jógy a jógy pro děti.
 
- Jsme stále ve spojení a mé další vzdělávání v józe pokračuje částečně pod vedením Evy.
+Jsme stále ve spojení a mé další vzdělávání v józe pokračuje částečně pod vedením Evy.
+
+Evy si vážím ,jelikož její jógová cesta je opravdu ze srdce a je pro mne jogínka od hlavy po paty, tělem i duší.
 
 Obrovským přínosem pro vzdělání jsou mi víkendové kurzy jógy Evy Svobodové Kizekové(www.jogasevou.cz), při kterém jsem měla možnost nahlédnout i do reflexní terapie ajurvédských masáží.
 
@@ -51,7 +53,7 @@ Terapeutická jóga,Bihárska škola -Eva Berkana
 
 Jivamukti yoga for master class - Jules Febre
 
-Aromaterapie - Zázraky duše 
+Aromaterapie - Zázraky duše
 
 Ayurvédská masáž a techniky - škola Ayurvédy Dr.Mazala, Krkonoše
 
