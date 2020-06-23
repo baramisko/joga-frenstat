@@ -37,7 +37,7 @@ Kurzy ,které můžete pomaličku začít rezervovat a přemýšlet ,který zvol
 
 **Pondělí** - Ranní jógová praxe 6:00 (otevřená lekce pro všechny) vstupné 100 Kč,-.Pro navštěvující jakýkoliv kurz 90,-Kč
 
-**Úterý** - 17:15 Vědomá jógová praxe - pro již praktikující, kteří se chtějí posouvat dále ve své jógové praxi,tento kurz může být i pro začátečníky, kteří chtějí ne jen ,,cvičit,,. 12 volných míst
+**Úterý** - 17:15 Vědomá jógová praxe - pro již praktikující, kteří se chtějí posouvat dále ve své jógové praxi,tento kurz může být i pro začátečníky, kteří chtějí ne jen ,,cvičit,,. 10 volných míst
 
 Září-Říjen : 9 lekcí 1200,- Kč
 
