@@ -5,7 +5,7 @@ layout: page
 ---
 ![](/uploads/IMG_20190730_104235_826.jpg)
 
-## **Kurzy od Září budou určitě i kdyby se měnila situace ohledně COVIDu a to formou online kurzu. Avšak pevně věřím,že se sejdeme ve studiu :)**
+## **![](/uploads/pondeli-6-page0001.jpg)**
 
 Pár videií pro radost a isnpiraci a také motivaci
 
