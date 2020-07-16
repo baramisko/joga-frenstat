@@ -33,15 +33,15 @@ Počet míst 10 - k dispozici 7.
 
 Kurzy ,které můžete pomaličku začít rezervovat a přemýšlet ,který zvolit -
 
-**Pondělí** - Ranní jógová praxe 6:00 (otevřená lekce pro všechny) vstupné 100 Kč,-.Pro navštěvující jakýkoliv kurz 90,-Kč 9 volných míst
+**Pondělí** - Ranní jógová praxe 6:00 (otevřená lekce pro všechny) vstupné 100 Kč,-.Pro navštěvující jakýkoliv kurz 90,-Kč 6 volných míst
 
-**Úterý** - 17:15 Vědomá jógová praxe - pro již praktikující, kteří se chtějí posouvat dále ve své jógové praxi,tento kurz může být i pro začátečníky, kteří chtějí ne jen ,,cvičit,,. 10 volných míst
+**Úterý** - 17:15 Vědomá jógová praxe - pro již praktikující, kteří se chtějí posouvat dále ve své jógové praxi,tento kurz může být i pro začátečníky, kteří chtějí ne jen ,,cvičit,,. 6 volných míst
 
 Září-Říjen : 9 lekcí 1200,- Kč
 
-**Středa** - 8:00 Ranní jógová praxe ( otevřená lekce pro všechny) vstupné 100,- Kč. Pro navštěvující jakýkoliv kurz 90,- Kč
+**Středa** - 8:00 Ranní jógová praxe ( otevřená lekce pro všechny) vstupné 100,- Kč. Pro navštěvující jakýkoliv kurz 90,- Kč, 10 volných míst
 
-**Čtvrtek** - 16:15 Jóga proti bolesti, zdravá záda. 13 volných míst
+**Čtvrtek** - 16:15 Jóga proti bolesti, zdravá záda. 10 volných míst
 
 Září-Říjen: 9 lekcí 1150,-Kč
 
