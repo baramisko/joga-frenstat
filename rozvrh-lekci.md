@@ -5,6 +5,8 @@ layout: page
 ---
 ![](/uploads/IMG_20190730_104235_826.jpg)
 
+## **Kurzy od Září budou určitě i kdyby se měnila situace ohledně COVIDu a to formou online kurzu. Avšak pevně věřím,že se sejdeme ve studiu :)**
+
 Pár videií pro radost a isnpiraci a také motivaci
 
 [https://youtu.be/bbuz5wgc78Q](https://youtu.be/bbuz5wgc78Q "https://youtu.be/bbuz5wgc78Q") nejen ranní protažení,krátce
