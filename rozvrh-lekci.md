@@ -5,7 +5,7 @@ layout: page
 ---
 ![](/uploads/IMG_20190730_104235_826.jpg)
 
-### Pár videií pro radost a isnpiraci a také motivaci
+### Pár videí pro radost a inspiraci a také motivaci
 
 [https://youtu.be/bbuz5wgc78Q](https://youtu.be/bbuz5wgc78Q "https://youtu.be/bbuz5wgc78Q") nejen ranní protažení,krátce
 
