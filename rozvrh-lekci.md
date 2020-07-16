@@ -5,9 +5,7 @@ layout: page
 ---
 ![](/uploads/IMG_20190730_104235_826.jpg)
 
-## **![](/uploads/pondeli-6-page0001.jpg)**
-
-Pár videií pro radost a isnpiraci a také motivaci
+### Pár videií pro radost a isnpiraci a také motivaci
 
 [https://youtu.be/bbuz5wgc78Q](https://youtu.be/bbuz5wgc78Q "https://youtu.be/bbuz5wgc78Q") nejen ranní protažení,krátce
 
