@@ -5,8 +5,6 @@ layout: page
 ---
 ![](/uploads/IMG_20190730_104235_826.jpg)
 
-![](/uploads/pondeli-6-page0001.jpg)
-
 ### Pár videí pro radost a inspiraci a také motivaci
 
 [https://youtu.be/bbuz5wgc78Q](https://youtu.be/bbuz5wgc78Q "https://youtu.be/bbuz5wgc78Q") nejen ranní protažení,krátce
@@ -37,7 +35,7 @@ Kurzy ,které můžete pomaličku začít rezervovat a přemýšlet ,který zvol
 
 **Pondělí** - Ranní jógová praxe 6:00 (otevřená lekce pro všechny) vstupné 100 Kč,-.Pro navštěvující jakýkoliv kurz 90,-Kč 6 volných míst
 
-**Úterý** - 17:15 Vědomá jógová praxe - pro již praktikující, kteří se chtějí posouvat dále ve své jógové praxi,tento kurz může být i pro začátečníky, kteří chtějí ne jen ,,cvičit,,. 6 volných míst
+**Úterý** - 16:15 Jóga proti bolesti, zdravá záda. 10 volných míst
 
 Září-Říjen : 9 lekcí 1200,- Kč
 
@@ -47,7 +45,7 @@ Září-Říjen : 9 lekcí 1200,- Kč
 
 Září-Říjen: 9 lekcí 1150,-Kč
 
-**Čtvrtek dle zájmu 17:30 lekce jógy 13 volných míst**
+**Čtvrtek  17:30** Vědomá jógová praxe - pro již praktikující, kteří se chtějí posouvat dále ve své jógové praxi,tento kurz může být i pro začátečníky, kteří chtějí ne jen ,,cvičit,,. 6 volných míst
 
 Po té si dáme týdenní pauzičku a pokračujeme dále
 
