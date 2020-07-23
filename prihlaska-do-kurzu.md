@@ -7,8 +7,6 @@ Vždy se snažím přistupovat individuálně ke klientovi a jeho potřebám v d
 
 Nejsem jen masérka nebo jogínka, ale hlavně lidská bytost, která vnímá potřeby druhých.
 
-Nečekejte ode mne tedy sestavenou tabulkou cen od do za to a tamto :)
-
 Vždy je na prvním místě potřeba Vás , jste -li unavení fyzicky, psychicky, či obojí. Dohodneme se předem, jestli strávíme čas masáží, nebo povídáním, meditací či terapií, ceny jsou uvedeny tedy hlavně po minutách.
 
 Samozřejmě ,kdo chce výhradně masáž, dostane beze slov masáž :)
