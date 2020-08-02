@@ -23,14 +23,6 @@ _800,- Kč_
 
 _1200,- Kč_
 
-_Celý rituál s očistou , ochranou na závěr, s teplým olejem tekoucím po čele a prací s krystaly, včetně zcela hlubinné masáže ajurvédskými technikami v trvání 90 minut_
-
-_950,- Kč **( Královský )**_
-
-_nebo 120 minut_
-
-_1400,- Kč **( Extra Královský )**_
-
 _Uvedené ceny jsou zcela dobrovolné a mohou se lišit dle domluvy a individuálního přístupu._
 
 _Chcete-li na všem se domluvíme._
