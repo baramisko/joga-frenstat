@@ -31,7 +31,9 @@ Počet míst 10 - k dispozici 7.
 
 ## Září
 
-Kurzy ,které můžete pomaličku začít rezervovat a přemýšlet ,který zvolit -
+Kurzy ,které můžete pomaličku začít rezervovat a přemýšlet ,který zvolit 
+
+![](/uploads/pondeli-6-page0001-2.jpg)
 
 Po té si dáme týdenní pauzičku a pokračujeme dále
 
