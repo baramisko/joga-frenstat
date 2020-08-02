@@ -29,8 +29,6 @@ _Nejsem kvalifikovaný terapeut, ani lékař. Jsem lidská bytost s vnímavostí
 
 _Vždy chráním bezpečí a soukromí klienta._
 
-_Ceny uvedené jsou doporučené a oceněny tak, jak si vážím Vás a mé práce._
-
 _Pracuji především s technikami Ajurvédy a reflexními technikami._
 
 _Uleví se všem, kdo úlevu potřebuje._
