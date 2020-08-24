@@ -25,6 +25,8 @@ Aktuálně chystané kurzy a workshopy a pobyty
 
 Kurzy ,které můžete pomaličku začít rezervovat a přemýšlet ,který zvolit
 
+![](/uploads/pondeli-6-page0001-2.jpg)
+
            Po té si dáme týdenní pauzičku a pokračujeme dále
 
                                                                              **_Namasté_**
