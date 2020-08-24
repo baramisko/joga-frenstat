@@ -19,24 +19,14 @@ layout: page
 
 [https://youtu.be/L3eSIDCFzmk](https://youtu.be/L3eSIDCFzmk  "https://youtu.be/L3eSIDCFzmk") Asthanga Yoga venku s kočkami i ještěrkami zcela autenticky :)
 
-Aktuálně chystané kurzy a workshopy a pobyty -
-
-## **Srpen**
-
-**Srpen** - tří hodinový workshop intenzivní vědomé jógy, přihlásit se můžete mailem bara.nyja@seznam.cz, vhodné pro již kurzisty na opakování lekcí před startem nového roku a také pro začátečníky jako první ,,návod,, a taky první nakouknutí než se rozhodnete zaplatit a chodit do kurzu.
-
-cena 350,- Kč termín workshopu 23.8.2020 od 8:30 do cca 11:30, v ceně je i společný oběd v podobě vegetariánské jídla.
-
-Počet míst 10 - k dispozici 7.
+Aktuálně chystané kurzy a workshopy a pobyty 
 
 ## Září
 
-Kurzy ,které můžete pomaličku začít rezervovat a přemýšlet ,který zvolit 
+Kurzy ,které můžete pomaličku začít rezervovat a přemýšlet ,který zvolit
 
-![](/uploads/pondeli-6-page0001-2.jpg)
+           Po té si dáme týdenní pauzičku a pokračujeme dále
 
-Po té si dáme týdenní pauzičku a pokračujeme dále
-
-**_Namasté_**
+                                                                             **_Namasté_**
 
 ![](/uploads/diwaliposterimage-1.webp)
