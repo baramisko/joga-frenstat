@@ -13,23 +13,23 @@ Samozřejmě ,kdo chce výhradně masáž, dostane beze slov masáž :)
 
 **_Milí mojí navštěvující lekce, máte vždy o 100 Kč méně z cen uvedených._**
 
-Po domluvě hodinová masáž 650,-
+Po domluvě hodinová masáž 700,-
 
 **_Masáž_** **_90 minut_** _( Základní )_
 
-_800,- Kč_
+_850,- Kč_
 
 **_Masáž 120 minut_** _( Prodloužená )_
 
-_1200,- Kč_
+_1300,- Kč_
 
 **Lekce jógy** 120,- Kč
 
 **Kurz 1150**,- 9 lekcí
 
-**Lekce individuální jógy**, sestavy na míru podle možností a fyzického zdraví klienta 800,- Kč
+**Lekce individuální jógy**, sestavy na míru podle možností a fyzického zdraví klienta 800,- Kč v době trvání cca hodinu až dvě
 
-**Lekce individuální skupinové jógy** ( dárek, rozlučka se svobodou, narozeniny apod...) minimálně 5 lidí, za každého  250,- Kč
+**Lekce individuální skupinové jógy** ( dárek, rozlučka se svobodou, narozeniny apod...) minimálně 5 lidí, za každého  300,- Kč
 
 _Uvedené ceny jsou zcela dobrovolné a mohou se lišit dle domluvy a individuálního přístupu._
 
