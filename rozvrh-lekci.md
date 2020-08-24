@@ -27,6 +27,8 @@ Kurzy ,které můžete pomaličku začít rezervovat a přemýšlet ,který zvol
 
 ![](/uploads/pondeli-6-page0001-2.jpg)
 
+Zbývá aktuálně pár poslední míst na všech kurzech, kromě Čtvrtečního kurzu pozdější čas, ten je již naplněn a dřívější čas prozatím neotevřen, avšak podle zájmu otevřu
+
            Po té si dáme týdenní pauzičku a pokračujeme dále
 
                                                                              **_Namasté_**
