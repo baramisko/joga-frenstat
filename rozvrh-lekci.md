@@ -25,6 +25,6 @@ Aktuálně chystané kurzy a workshopy a pobyty
 
 Kurzy ,které můžete pomaličku začít rezervovat a přemýšlet ,který zvolit
 
-Zbývá aktuálně pár poslední míst na všech kurzech, kromě Čtvrtečního kurzu pozdější čas, ten je již naplněn a dřívější čas prozatím neotevřen, avšak podle zájmu otevřu
+![](/uploads/pondeli-6-page0001-2.jpg)
 
 ![](/uploads/diwaliposterimage-1.webp)
