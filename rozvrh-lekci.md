@@ -19,18 +19,12 @@ layout: page
 
 [https://youtu.be/L3eSIDCFzmk](https://youtu.be/L3eSIDCFzmk  "https://youtu.be/L3eSIDCFzmk") Asthanga Yoga venku s kočkami i ještěrkami zcela autenticky :)
 
-Aktuálně chystané kurzy a workshopy a pobyty 
+Aktuálně chystané kurzy a workshopy a pobyty
 
 ## Září
 
 Kurzy ,které můžete pomaličku začít rezervovat a přemýšlet ,který zvolit
 
-![](/uploads/pondeli-6-page0001-2.jpg)
-
 Zbývá aktuálně pár poslední míst na všech kurzech, kromě Čtvrtečního kurzu pozdější čas, ten je již naplněn a dřívější čas prozatím neotevřen, avšak podle zájmu otevřu
-
-           Po té si dáme týdenní pauzičku a pokračujeme dále
-
-                                                                             **_Namasté_**
 
 ![](/uploads/diwaliposterimage-1.webp)
