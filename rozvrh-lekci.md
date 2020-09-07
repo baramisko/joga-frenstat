@@ -25,6 +25,4 @@ Aktuálně chystané kurzy a workshopy a pobyty
 
 Kurzy ,které můžete pomaličku začít rezervovat a přemýšlet ,který zvolit
 
-![](/uploads/pondeli-6-page0001-2.jpg)
-
 ![](/uploads/diwaliposterimage-1.webp)
