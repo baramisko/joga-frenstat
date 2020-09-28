@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Masáže a rituály...
+title: Hlubinné relaxace, rituály, masáže...
 
 ---
 ![](/uploads/christin-hume-505815-unsplash_190205_120818_db737ff7685c62369a0cef2c0fbf3c3a.jpg)
@@ -34,20 +34,6 @@ _Pracuji především s technikami Ajurvédy a reflexními technikami._
 _Uleví se všem, kdo úlevu potřebuje._
 
 ![](/uploads/216-2165067_hands-png-health-pinterest-massage-drawing-transparent-png.jpg)
-
-**_Olejové zábaly_**
-
-_Olej se dokáže ve své účinnosti vstřebat až do kostí, až do nervového zakončení a všech koutů našeho těla._
-
-_Olejový zábal může být velmi vhodným doplňkem po masáži i jako samostatný rituál._
-
-_Při chronických bolestech , při akutní bolesti plotýnkového tipu, pokud jsme prodělali vážnou nemoc jater, ledvin,…_
-
-_Přikládáním teplého oleje na gáze na postižené místo se můžete uzdravit rychleji, ulevit si rychleji, a nebo také jako prevenci před civilizačními chorobami._
-
-_Ženy ocení omlazující rituál na tvář a obličej, dekolt, krk, ruce a nohy._
-
-_Na olejové zábaly je nutno se objednat týden dopředu. Po zaslání dotazníku, ohledně zdravotního stavu, krevního tlaku či alergii najdeme společný termín._
 
 ![](/uploads/gynNUe9fTCyUpQTvSSpd_shamanka_large_landscape.jpg)
 
