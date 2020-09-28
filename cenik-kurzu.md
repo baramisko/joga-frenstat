@@ -49,7 +49,7 @@ Pokud Vám to přece jen nedá a chcete vědět, co jsem studovala či který ku
 
 K citlivosti pro komunikaci a neodsuzování jakéhokoliv problému tělesné roviny či duševní mi částečně pomohlo studium Sociálních věd a psychologie v Ostravě, z kurzů po studiích jsem absolvovala např. Psychosomatické potíže a úzkosti,problematika drogově závislých, poruchy příjmu potravy aj. Pokud by Vás zajímala terapie tímto směrem,lze se domluvit.
 
-Asthanga yoga - Dimitris Dibelo a Sr. K. Pattabhi Jois
+Asthanga yoga - Dimitris Dibelo
 
 Terapeutická jóga,Bihárska škola -Eva Berkana
 
