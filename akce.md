@@ -41,6 +41,8 @@ _Uleví se všem, kdo úlevu potřebuje._
 
 ...Nebo terapie slovem dle domluvy...
 
+...Léčba nejen dotykem...
+
 _Pokud toužíte po odstranění napětí nejen z těla, ale i mysli, lze se domluvit na individuálním rituálu, který trvá cca dvě hodiny času._
 
 _Rituál byl a zase je běžnou součástí života, ne jen šamanů či zaříkávačů._
