@@ -61,6 +61,8 @@ Ayurvédská masáž a techniky - škola Ayurvédy Dr.Mazala, Krkonoše
 
 Meditace a fasciální yoga,rituály,Spinal Yoga - Dambar Pan, Nepál 1 měsíc intenzivně
 
+Léčení Reiki - aktuálně v učení
+
 ![](/uploads/BeFunky-collage (6).jpg)
 
 ![](/uploads/BeFunky-collage (4).jpg)
