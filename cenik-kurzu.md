@@ -69,8 +69,6 @@ Léčení Reiki - aktuálně v učení
 
 ![](/uploads/BeFunky-collage (3).jpg)
 
-![](/uploads/BeFunky-collage (7).jpg)
-
 ![](/uploads/BeFunky-collage-2.jpg)
 
 ![](/uploads/BeFunky-collage (9).jpg)
