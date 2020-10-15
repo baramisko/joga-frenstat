@@ -19,8 +19,6 @@ layout: page
 
 [https://youtu.be/L3eSIDCFzmk](https://youtu.be/L3eSIDCFzmk  "https://youtu.be/L3eSIDCFzmk") Asthanga Yoga venku s kočkami i ještěrkami zcela autenticky :)
 
-## Září
-
-Kurzy naplněny, pište si však mailem pro možnost posledních dvou, tří míst. Jógujeme do Října a pak uvidíme, dle situace ,jak budeme přistupovat dál.
+Kurzy pozastaveny s ohledem na situaci, pište si o masáže aj.
 
 ![](/uploads/diwaliposterimage-1.webp)
