@@ -19,6 +19,16 @@ layout: page
 
 [https://youtu.be/L3eSIDCFzmk](https://youtu.be/L3eSIDCFzmk  "https://youtu.be/L3eSIDCFzmk") Asthanga Yoga venku s kočkami i ještěrkami zcela autenticky :)
 
+Přátelé zasílám link na nové video v rámci kurzu, které prosím neplaťte, vy co nemáte zaplaceno, berte toto video jako pozornost. Placená videa budou po dokončení kurzu dle plánu. [https://youtu.be/J55BnB7mdpM](https://youtu.be/J55BnB7mdpM "https://youtu.be/J55BnB7mdpM")  Kundalini yoga, základ
+
+  
+\--   
+Subham astu Sarvadžagatam  
+Bára   
+  
+Jogínka s vlastní praxí - jóga studio ve Frenštátě pod Radhoštěm  
+Aromaterapeutické masáže
+
 Kurzy pozastaveny s ohledem na situaci, pište si o masáže aj.
 
 ![](/uploads/diwaliposterimage-1.webp)
