@@ -3,6 +3,8 @@ title: O Báře
 layout: page
 
 ---
+Více k dalším službám, uvedeno zde : www.baranyja.eu
+
 Celý život kroužím okolo vůní, energií, péče o těla a ducha a tak jsem po letech v sociálních službách, práce s dětmi, lidmi, se závislými na různých vnějších vjemů opustila instituty a vrhla se do vlastního světa.
 
 Světa masáží
