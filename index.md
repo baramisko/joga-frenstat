@@ -7,6 +7,8 @@ title: Vítej...
 
 _Jóga navrací ke kořenům, je to cesta, která nám ukazuje naše vnitřní Já a duši v celistvosti a tuto celistvost Vám chci na mých hodinách předat s pokorou a úctou ke každému z Vás._
 
-V současné situaci, jsou lekce pozastaveny ve vnitřním prostoru studia, lze využít další mé služby , individuální masáž apod..
+ONLINE KURZ K DISPOZICI! 4 lekce od nejnižšího stupně k dalšímu vývoji a náročnosti v době trvání 60´-70´ včetně relaxačních a meditačních technik za cenu 550,- Kč.
 
-Pro informace o kurzech pište na bara.nyja@seznam.cz
+Po zaslání peněz na účet , posílám heslo k videím, které jsou v nové kvalitě natočeny ve studiu, s dobrým obrazem a kvalitním zvukem.
+
+Pro info pište mail bara.nyja@seznam.cz
