@@ -18,3 +18,5 @@ Lze se hlásit na pobyt na Antariku ve dvou termínech :
 a druhý termín 5-7.3.2021
 
 [https://docs.google.com/document/d/1-N0GTfLcKCAI-HDtf68YelxcnUmRnjgg3okM50k_Rqw/edit?usp=sharing](https://docs.google.com/document/d/1-N0GTfLcKCAI-HDtf68YelxcnUmRnjgg3okM50k_Rqw/edit?usp=sharing "https://docs.google.com/document/d/1-N0GTfLcKCAI-HDtf68YelxcnUmRnjgg3okM50k_Rqw/edit?usp=sharing")
+
+Pokud by se pobytu z důvodu nařízení vlády nekonaly, zálohy se Vám automaticky přesouvají na další možný termín, s neomezenou platností roku 2021.
