@@ -3,67 +3,67 @@ title: O Báře
 layout: page
 
 ---
-Více k dalším službám, uvedeno zde : www.baranyja.eu
+_Více k dalším službám, uvedeno zde : www.baranyja.eu_
 
-Celý život kroužím okolo vůní, energií, péče o těla a ducha a tak jsem po letech v sociálních službách, práce s dětmi, lidmi, se závislými na různých vnějších vjemů opustila instituty a vrhla se do vlastního světa.
+_Celý život kroužím okolo vůní, energií, péče o těla a ducha a tak jsem po letech v sociálních službách, práce s dětmi, lidmi, se závislými na různých vnějších vjemů opustila instituty a vrhla se do vlastního světa._
 
-Světa masáží
+_Světa masáží_
 
-Světa jógy
+_Světa jógy_
 
-Světa vůní
+_Světa vůní_
 
-Světa energií
+_Světa energií_
 
-Světa, kde se eliminuje napětí, stres, strach, nemoce…
+_Světa, kde se eliminuje napětí, stres, strach, nemoce…_
 
-Mým domovem je příroda, les, chaloupka v něm, potok, tři kočky( někdy sedm..), má rodina, klid a učení se k navrácení se k sobě, do nitra.
+_Mým domovem je příroda, les, chaloupka v něm, potok, tři kočky( někdy sedm..), má rodina, klid a učení se k navrácení se k sobě, do nitra._
 
-Bude mi ctí s Vámi projít cestu k poznání sebe, v mužském i ženském aspektu.
+_Bude mi ctí s Vámi projít cestu k poznání sebe, v mužském i ženském aspektu._
 
-### O mně a józe
+### _O mně a józe_
 
-Neustálá praxe, neustálé studium a touha po lepším životě pro sebe i ostatní je mým pilířem jógy, je to cesta, díky které jsem si uvědomila své tělo, svou podstatu mysli, své nároky. Nejbližším stylem je mi přes 20 let stará Aštanga a Jivamukti jóga, oba směry zdokonaluji praxí samotnou tak pod vedením učitelů.
+_Neustálá praxe, neustálé studium a touha po lepším životě pro sebe i ostatní je mým pilířem jógy, je to cesta, díky které jsem si uvědomila své tělo, svou podstatu mysli, své nároky. Nejbližším stylem je mi přes 20 let stará Aštanga a Jivamukti jóga, oba směry zdokonaluji praxí samotnou tak pod vedením učitelů._
 
-Vzdělání se v oboru neberu skokově dle kurzů ale především celoživotně a komplexně. Jestliže jsem absolvovala kurz Hatha Yoga,neznamená to nutně,že jsem lektorem Hatha Yoga, velice si vážím sebevzdělání a nespím na vavřínech :)
+_Vzdělání se v oboru neberu skokově dle kurzů ale především celoživotně a komplexně. Jestliže jsem absolvovala kurz Hatha Yoga,neznamená to nutně,že jsem lektorem Hatha Yoga, velice si vážím sebevzdělání a nespím na vavřínech :)_
 
-Jedním z mých učitelů je učitelkou, přítelem v józe a mentorkou jógy je Eva Berkana, se kterou jsem absolvovala roční kurz terapeutické jógy a jógy pro děti.
+_Jedním z mých učitelů je učitelkou, přítelem v józe a mentorkou jógy je Eva Berkana, se kterou jsem absolvovala roční kurz terapeutické jógy a jógy pro děti._
 
-Jsme stále ve spojení a mé další vzdělávání v józe pokračuje částečně pod vedením Evy.
+_Jsme stále ve spojení a mé další vzdělávání v józe pokračuje částečně pod vedením Evy._
 
-Evy si vážím ,jelikož její jógová cesta je opravdu ze srdce a je pro mne jogínka od hlavy po paty, tělem i duší.
+_Evy si vážím ,jelikož její jógová cesta je opravdu ze srdce a je pro mne jogínka od hlavy po paty, tělem i duší._
 
-Obrovským přínosem pro vzdělání jsou mi víkendové kurzy jógy Evy Svobodové Kizekové(www.jogasevou.cz), při kterém jsem měla možnost nahlédnout i do reflexní terapie ajurvédských masáží.
+_Obrovským přínosem pro vzdělání jsou mi víkendové kurzy jógy Evy Svobodové Kizekové(www.jogasevou.cz), při kterém jsem měla možnost nahlédnout i do reflexní terapie ajurvédských masáží._
 
-Evu vnímám nejen jako učitelku, ale jako kamarádku a v kontaktu jsme i v běžném životě.
+_Evu vnímám nejen jako učitelku, ale jako kamarádku a v kontaktu jsme i v běžném životě._
 
-Inspirací na mé cestě je Srí Sv. Gitanánda, díky kterému se sebevzdělávám denně řadu let a je mi neustále obrovským darem, dále je to pan [Eduard Tomáš](https://cs.wikipedia.org/wiki/Eduard_Tom%C3%A1%C5%A1) a Míla Tomášová a také [Srí Chinmoy](https://cs.wikipedia.org/wiki/%C5%A0r%C3%AD_%C4%8Cinmoj), jejichž slova a meditace aplikuji denně. Jsem absolventkou mnoha jógových seminářů a cest do zemí, kdy jsem měla možnost okusit pravou podstatu jógového života, jakou byl např. Nepál.
+_Inspirací na mé cestě je Srí Sv. Gitanánda, díky kterému se sebevzdělávám denně řadu let a je mi neustále obrovským darem, dále je to pan_ [_Eduard Tomáš_](https://cs.wikipedia.org/wiki/Eduard_Tom%C3%A1%C5%A1) _a Míla Tomášová a také_ [_Srí Chinmoy_](https://cs.wikipedia.org/wiki/%C5%A0r%C3%AD_%C4%8Cinmoj)_, jejichž slova a meditace aplikuji denně. Jsem absolventkou mnoha jógových seminářů a cest do zemí, kdy jsem měla možnost okusit pravou podstatu jógového života, jakou byl např. Nepál._
 
-Intenzivně jóguji a věnuji se józe od roku 2014
+_Intenzivně jóguji a věnuji se józe od roku 2014_
 
-A hlavně! Mne to baví! :) Mám za sebou kurz Hatha a Vinyasa jógy a také mne čeká kurz jógy vědomí neboli Kundalíni jóga.
+_A hlavně! Mne to baví! :) Mám za sebou kurz Hatha a Vinyasa jógy a také mne čeká kurz jógy vědomí neboli Kundalíni jóga._
 
-Na mé cestě se neustále vzdělávám. Jóga není jen o asánách,neboli o tělesnu, není jen o dechu čili pranajámatických cvičení, je to komplexní dar duchovních učitelů a já s největší pokorou a úctou ráda předávám znalosti,kterými jsem byla obohacena.
+_Na mé cestě se neustále vzdělávám. Jóga není jen o asánách,neboli o tělesnu, není jen o dechu čili pranajámatických cvičení, je to komplexní dar duchovních učitelů a já s největší pokorou a úctou ráda předávám znalosti,kterými jsem byla obohacena._
 
-Mým každodenním chlebem v józe je cesta Patanjalího a jógasuter,které mi ucelují životní pouť.
+_Mým každodenním chlebem v józe je cesta Patanjalího a jógasuter,které mi ucelují životní pouť._
 
-Pokud Vám to přece jen nedá a chcete vědět, co jsem studovala či který kurz mám hotov tak prosím :
+_Pokud Vám to přece jen nedá a chcete vědět, co jsem studovala či který kurz mám hotov tak prosím :_
 
-K citlivosti pro komunikaci a neodsuzování jakéhokoliv problému tělesné roviny či duševní mi částečně pomohlo studium Sociálních věd a psychologie v Ostravě, z kurzů po studiích jsem absolvovala např. Psychosomatické potíže a úzkosti,problematika drogově závislých, poruchy příjmu potravy aj. Pokud by Vás zajímala terapie tímto směrem,lze se domluvit.
+_K citlivosti pro komunikaci a neodsuzování jakéhokoliv problému tělesné roviny či duševní mi částečně pomohlo studium Sociálních věd a psychologie v Ostravě, z kurzů po studiích jsem absolvovala např. Psychosomatické potíže a úzkosti,problematika drogově závislých, poruchy příjmu potravy aj. Pokud by Vás zajímala terapie tímto směrem,lze se domluvit._
 
-Asthanga yoga - Dimitris Dibelo
+_Asthanga yoga - Dimitris Dibelo_
 
-Terapeutická jóga,Bihárska škola -Eva Berkana
+_Terapeutická jóga,Bihárska škola -Eva Berkana_
 
-Jivamukti yoga for master class - Jules Febre
+_Jivamukti yoga for master class - Jules Febre_
 
-Aromaterapie - Zázraky duše
+_Aromaterapie - Zázraky duše_
 
-Ayurvédská masáž a techniky - škola Ayurvédy Dr.Mazala, Krkonoše
+_Ayurvédská masáž a techniky - škola Ayurvédy Dr.Mazala, Krkonoše_
 
-Meditace a fasciální yoga,rituály,Spinal Yoga - Dambar Pan, Nepál 1 měsíc intenzivně
+_Meditace a fasciální yoga,rituály,Spinal Yoga - Dambar Pan, Nepál 1 měsíc intenzivně_
 
-Léčení Reiki - aktuálně v učení
+_Léčení Reiki - aktuálně v učení_
 
 ![](/uploads/BeFunky-collage (6).jpg)
 
