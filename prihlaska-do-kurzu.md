@@ -23,11 +23,9 @@ _850,- Kč_
 
 _1300,- Kč_
 
-**Lekce jógy** 120,- Kč
+**Lekce jógy** 150,- Kč
 
-**Kurz 1150**,- 9 lekcí
-
-**Lekce individuální jógy**, sestavy na míru podle možností a fyzického zdraví klienta 800,- Kč v době trvání cca hodinu až dvě
+**Lekce individuální jógy**, sestavy na míru podle možností a fyzického zdraví klienta 650,- Kč v době trvání cca hodinu až dvě
 
 **Lekce individuální skupinové jógy** ( dárek, rozlučka se svobodou, narozeniny apod...) minimálně 5 lidí, za každého  300,- Kč
 
@@ -37,10 +35,6 @@ _Chcete-li na všem se domluvíme._
 
 _Peníze od Vás přijímám zcela dobrovolně ,stejně jako Vy mi je dáváte za účelem dobrovolného dárku._
 
-_Kurzovné je nevratné po od-chození tří lekcí v plné výši…_
-
 _Máte dostatek času přijít na to, zda-li Vám můj přístup vyhovuje či nikoli…_
-
-_Vyjímky cen lze po domluvě dohodnout,na rozdělení na tři částky nebo jiné…_
 
 ![](/uploads/57fbb7ebfd1817b342675a8ebc96cdd1.jpg)
