@@ -9,7 +9,7 @@ _Nejsem jen masérka nebo jogínka, ale hlavně lidská bytost, která vnímá p
 
 _Vždy je na prvním místě potřeba Vás , jste -li unavení fyzicky, psychicky, či obojí. Dohodneme se předem, jestli strávíme čas masáží, nebo povídáním, meditací či terapií, ceny jsou uvedeny tedy hlavně po minutách._
 
-_Samozřejmě ,kdo chce výhradně masáž, dostane beze slov masáž :)_
+_Samozřejmě ,kdo chce výhradně masáž, dostane beze slov masáž._
 
 **_Milí mojí navštěvující lekce, máte vždy o 100 Kč méně z cen uvedených._**
 
