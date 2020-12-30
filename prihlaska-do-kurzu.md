@@ -1,5 +1,5 @@
 ---
-title: Nabídka cen...
+title: Ceník...
 layout: page
 
 ---
