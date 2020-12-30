@@ -31,7 +31,7 @@ _Nejsem kvalifikovaný terapeut, ani lékař. Jsem lidská bytost s vnímavostí
 
 _Vždy chráním bezpečí a soukromí klienta._
 
-_Pracuji především s technikami Ajurvédy a reflexními technikami._
+_Pracuji především s technikami Ajurvédy a reflexními technikami, měkkými technikami._
 
 _Uleví se všem, kdo úlevu potřebuje._
 
