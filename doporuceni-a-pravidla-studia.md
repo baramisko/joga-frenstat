@@ -1,5 +1,5 @@
 ---
-title: Váš přístup ve studiu...
+title: Doporučení a etika...
 layout: page
 
 ---
