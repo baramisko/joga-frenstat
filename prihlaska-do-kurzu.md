@@ -3,13 +3,13 @@ title: Ceník...
 layout: page
 
 ---
-Vždy se snažím přistupovat individuálně ke klientovi a jeho potřebám v daném stavu a momentu.
+_Vždy se snažím přistupovat individuálně ke klientovi a jeho potřebám v daném stavu a momentu._
 
-Nejsem jen masérka nebo jogínka, ale hlavně lidská bytost, která vnímá potřeby druhých.
+_Nejsem jen masérka nebo jogínka, ale hlavně lidská bytost, která vnímá potřeby druhých._
 
-Vždy je na prvním místě potřeba Vás , jste -li unavení fyzicky, psychicky, či obojí. Dohodneme se předem, jestli strávíme čas masáží, nebo povídáním, meditací či terapií, ceny jsou uvedeny tedy hlavně po minutách.
+_Vždy je na prvním místě potřeba Vás , jste -li unavení fyzicky, psychicky, či obojí. Dohodneme se předem, jestli strávíme čas masáží, nebo povídáním, meditací či terapií, ceny jsou uvedeny tedy hlavně po minutách._
 
-Samozřejmě ,kdo chce výhradně masáž, dostane beze slov masáž :)
+_Samozřejmě ,kdo chce výhradně masáž, dostane beze slov masáž :)_
 
 **_Milí mojí navštěvující lekce, máte vždy o 100 Kč méně z cen uvedených._**
 
