@@ -5,9 +5,9 @@ title: Hlubinné relaxace, rituály, masáže...
 ---
 ![](/uploads/christin-hume-505815-unsplash_190205_120818_db737ff7685c62369a0cef2c0fbf3c3a.jpg)
 
-Více mých služeb hledejte prosím zde : www.baranyja.eu
+_Více mých služeb hledejte prosím zde : www.baranyja.eu_
 
-Masáž ,jako rituál...
+_Masáž ,jako rituál..._
 
 _Příchodem a naladěním se na společnou cestu masáže začíná Vaše osobní relaxace._
 
@@ -35,7 +35,7 @@ _Pracuji především s technikami Ajurvédy a reflexními technikami._
 
 _Uleví se všem, kdo úlevu potřebuje._
 
-![](/uploads/216-2165067_hands-png-health-pinterest-massage-drawing-transparent-png.jpg)
+_![](/uploads/216-2165067_hands-png-health-pinterest-massage-drawing-transparent-png.jpg)_
 
 ![](/uploads/gynNUe9fTCyUpQTvSSpd_shamanka_large_landscape.jpg)
 
