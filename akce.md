@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Masáže a ostatní služby...
+title: Ostatní služby
 
 ---
 
