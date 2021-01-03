@@ -1,5 +1,5 @@
 ---
-title: Ceník...
+title: Ceník
 layout: page
 
 ---
