@@ -11,10 +11,6 @@ _Vždy je na prvním místě potřeba Vás , jste -li unavení fyzicky, psychick
 
 _Samozřejmě ,kdo chce výhradně masáž, dostane beze slov masáž._
 
-**_Milí mojí navštěvující lekce, máte vždy o 100 Kč méně z cen uvedených._**
-
-Po domluvě hodinová masáž 700,-
-
 **_Masáž_** **_90 minut_** _( Základní )_
 
 _850,- Kč_
