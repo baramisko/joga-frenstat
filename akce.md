@@ -1,11 +1,11 @@
 ---
 layout: page
-title: Hlubinné relaxace, rituály, masáže...
+title: Masáže a ostatní služby...
 
 ---
 ![](/uploads/christin-hume-505815-unsplash_190205_120818_db737ff7685c62369a0cef2c0fbf3c3a.jpg)
 
-_Více mých služeb hledejte prosím zde : www.baranyja.eu_
+**_Více mých služeb hledejte prosím zde : www.baranyja.eu_**
 
 _Masáž ,jako rituál..._
 
@@ -36,25 +36,3 @@ _Pracuji především s technikami Ajurvédy a reflexními technikami, měkkými
 _Uleví se všem, kdo úlevu potřebuje._
 
 _![](/uploads/216-2165067_hands-png-health-pinterest-massage-drawing-transparent-png.jpg)_
-
-![](/uploads/gynNUe9fTCyUpQTvSSpd_shamanka_large_landscape.jpg)
-
-...Rituály na míru...
-
-...Nebo terapie slovem dle domluvy...
-
-...Léčba nejen dotykem...
-
-_Pokud toužíte po odstranění napětí nejen z těla, ale i mysli, lze se domluvit na individuálním rituálu, který trvá cca dvě hodiny času._
-
-_Rituál byl a zase je běžnou součástí života, ne jen šamanů či zaříkávačů._
-
-_Rituál pro očistu, ochranu, pro znovuobnovení síly, pro to abyste přitáhli do svého života co si přejete a nebo to, co zrovna ve svém životě řešíte…_
-
-_Rituál je sestaven na míru po předešlé mailové komunikaci, toho, co přesně Vy potřebujete._
-
-_Provázím jak vykuřovadly, očistou oleji, aromaterapií, meditací, zpěvem manter, stahování negace…_
-
-_Nebojte se odhodit své strachy a nejistoty, společně se můžeme pustit do světa s čistým a pevným duchem._
-
-![](/uploads/The-Art-of-Smudging.jpg)
