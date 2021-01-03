@@ -1,5 +1,5 @@
 ---
-title: O Báře
+title: O mně
 layout: page
 
 ---
