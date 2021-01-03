@@ -3,7 +3,6 @@ title: O mně...
 layout: page
 
 ---
-![](/uploads/sddefault.jpg)
 
 _Více k dalším službám, uvedeno zde : www.baranyja.eu_
 
@@ -69,12 +68,6 @@ _Léčení Reiki - aktuálně v učení_
 
 ![](/uploads/BeFunky-collage (6).jpg)
 
-![](/uploads/BeFunky-collage (4).jpg)
-
-![](/uploads/BeFunky-collage (3).jpg)
-
 ![](/uploads/BeFunky-collage-2.jpg)
 
 ![](/uploads/BeFunky-collage (9).jpg)
-
-![](/uploads/BeFunky-collage (10).jpg)
