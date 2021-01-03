@@ -1,5 +1,5 @@
 ---
-title: Jóga,kurzy,lekce...
+title: Jóga,kurzy,lekce
 layout: page
 
 ---

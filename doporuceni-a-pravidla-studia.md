@@ -1,5 +1,5 @@
 ---
-title: Doporučení a etika...
+title: Doporučení a etika
 layout: page
 
 ---

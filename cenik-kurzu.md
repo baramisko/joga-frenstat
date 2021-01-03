@@ -1,5 +1,5 @@
 ---
-title: O mně...
+title: O mně
 layout: page
 
 ---
