@@ -3,7 +3,7 @@ layout: page
 title: Vítej...
 
 ---
-![](/uploads/BeFunky-collage (2).jpg)
+![](/uploads/63e96ef7ce14c16435f772e8735c74d8.jpg)
 
 _Jóga navrací ke kořenům, je to cesta, která nám ukazuje naše vnitřní Já a duši v celistvosti a tuto celistvost Vám chci na mých hodinách předat s pokorou a úctou ke každému z Vás._
 
