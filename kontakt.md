@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Recenze a kontakt...
+title: Recenze a kontakt
 
 ---
 Pár milých slov ,spokojených klientů jógy a masáží...
