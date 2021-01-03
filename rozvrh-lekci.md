@@ -1,9 +1,11 @@
 ---
-title: Jóga...
+title: Jóga,kurzy,lekce...
 layout: page
 
 ---
 ![](/uploads/IMG_20190730_104235_826.jpg)
+
+Jakmile budeme moci opět volně jógovat ve studiu, budou zde vypsány kurzy a lekce.
 
 ### Pár videí pro radost a inspiraci a také motivaci
 
@@ -21,11 +23,10 @@ layout: page
 
 Přátelé zasílám link na nové video v rámci kurzu, které prosím neplaťte, vy co nemáte zaplaceno, berte toto video jako pozornost. Placená videa budou po dokončení kurzu dle plánu. [https://youtu.be/J55BnB7mdpM](https://youtu.be/J55BnB7mdpM "https://youtu.be/J55BnB7mdpM")  Kundalini yoga, základ
 
-  
-\--   
+\--  
 Subham astu Sarvadžagatam  
-Bára   
-  
+Bára
+
 Jogínka s vlastní praxí - jóga studio ve Frenštátě pod Radhoštěm  
 Aromaterapeutické masáže
 
