@@ -23,7 +23,7 @@ _Bude mi ctí s Vámi projít cestu k poznání sebe, v mužském i ženském as
 
 ### _O mně a józe_
 
-_Neustálá praxe, neustálé studium a touha po lepším životě pro sebe i ostatní je mým pilířem jógy, je to cesta, díky které jsem si uvědomila své tělo, svou podstatu mysli, své nároky. Nejbližším stylem je mi přes 20 let stará Aštanga a Jivamukti jóga, oba směry zdokonaluji praxí samotnou tak pod vedením učitelů._
+_Neustálá praxe, studium a touha po lepším životě pro sebe i ostatní je mým pilířem jógy, je to cesta, díky které jsem si uvědomila své tělo, svou podstatu mysli, své nároky. Nejbližším stylem je mi přes 20 let stará Aštanga a Jivamukti jóga, oba směry zdokonaluji praxí samotnou tak pod vedením učitelů._
 
 _Vzdělání se v oboru neberu skokově dle kurzů ale především celoživotně a komplexně. Jestliže jsem absolvovala kurz Hatha Yoga,neznamená to nutně,že jsem lektorem Hatha Yoga, velice si vážím sebevzdělání a nespím na vavřínech :)_
 
@@ -49,8 +49,6 @@ _Mým každodenním chlebem v józe je cesta Patanjalího a jógasuter,které mi
 
 _Pokud Vám to přece jen nedá a chcete vědět, co jsem studovala či který kurz mám hotov tak prosím :_
 
-_K citlivosti pro komunikaci a neodsuzování jakéhokoliv problému tělesné roviny či duševní mi částečně pomohlo studium Sociálních věd a psychologie v Ostravě, z kurzů po studiích jsem absolvovala např. Psychosomatické potíže a úzkosti,problematika drogově závislých, poruchy příjmu potravy aj. Pokud by Vás zajímala terapie tímto směrem,lze se domluvit._
-
 _Asthanga yoga - Dimitris Dibelo_
 
 _Terapeutická jóga,Bihárska škola -Eva Berkana_
@@ -64,3 +62,5 @@ _Ayurvédská masáž a techniky - škola Ayurvédy Dr.Mazala, Krkonoše_
 _Meditace a fasciální yoga,rituály,Spinal Yoga - Dambar Pan, Nepál 1 měsíc intenzivně_
 
 _Léčení Reiki - aktuálně v učení_
+
+_K citlivosti pro komunikaci a neodsuzování jakéhokoliv problému tělesné roviny či duševní mi částečně pomohlo studium Sociálních věd a psychologie v Ostravě, z kurzů po studiích jsem absolvovala např. Psychosomatické potíže a úzkosti,problematika drogově závislých, poruchy příjmu potravy aj. Pokud by Vás zajímala terapie tímto směrem,lze se domluvit._
