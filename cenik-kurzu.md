@@ -3,7 +3,6 @@ title: O mně...
 layout: page
 
 ---
-
 _Více k dalším službám, uvedeno zde : www.baranyja.eu_
 
 _Celý život kroužím okolo vůní, energií, péče o těla a ducha a tak jsem po letech v sociálních službách, práce s dětmi, lidmi, se závislými na různých vnějších vjemů opustila instituty a vrhla se do vlastního světa._
@@ -65,9 +64,3 @@ _Ayurvédská masáž a techniky - škola Ayurvédy Dr.Mazala, Krkonoše_
 _Meditace a fasciální yoga,rituály,Spinal Yoga - Dambar Pan, Nepál 1 měsíc intenzivně_
 
 _Léčení Reiki - aktuálně v učení_
-
-![](/uploads/BeFunky-collage (6).jpg)
-
-![](/uploads/BeFunky-collage-2.jpg)
-
-![](/uploads/BeFunky-collage (9).jpg)
