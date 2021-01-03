@@ -3,7 +3,6 @@ title: Doporučení a etika...
 layout: page
 
 ---
-![](/uploads/shamanic-soul-retrieval.l-1024x576.jpg)
 
 _Vcházíte –li do studia na lekci jógy, prosím vcházejte již ode dveří vstupních dole potichu…._
 
