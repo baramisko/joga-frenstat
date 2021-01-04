@@ -37,6 +37,8 @@ _Evy si vážím ,jelikož její jógová cesta je opravdu ze srdce a je pro mne
 
 _Obrovským přínosem pro vzdělání jsou mi víkendové kurzy jógy Evy Svobodové Kizekové(www.jogasevou.cz), při kterém jsem měla možnost nahlédnout i do reflexní terapie ajurvédských masáží._
 
+![](/uploads/IMG_20190704_104009_457-2.jpg)
+
 _Evu vnímám nejen jako učitelku, ale jako kamarádku a v kontaktu jsme i v běžném životě._
 
 _Inspirací na mé cestě je Srí Sv. Gitanánda, díky kterému se sebevzdělávám denně řadu let a je mi neustále obrovským darem, dále je to pan_ [_Eduard Tomáš_](https://cs.wikipedia.org/wiki/Eduard_Tom%C3%A1%C5%A1) _a Míla Tomášová a také_ [_Srí Chinmoy_](https://cs.wikipedia.org/wiki/%C5%A0r%C3%AD_%C4%8Cinmoj)_, jejichž slova a meditace aplikuji denně. Jsem absolventkou mnoha jógových seminářů a cest do zemí, kdy jsem měla možnost okusit pravou podstatu jógového života, jakou byl např. Nepál._
