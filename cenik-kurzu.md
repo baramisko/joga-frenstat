@@ -7,6 +7,8 @@ _Více k dalším službám, uvedeno zde : www.baranyja.eu_
 
 _Přála bych si, abyste u mne nalezli to , co vyzařuje mé srdce, ostatní slova jsou zbytečná....._
 
+![](/uploads/IMG_20200224_134609_320.jpg)
+
 _Celý život kroužím okolo vůní, energií, péče o těla a ducha a tak jsem po letech v sociálních službách, práce s dětmi, lidmi, se závislými na různých vnějších vjemů opustila instituty a vrhla se do vlastního světa._
 
 _Světa masáží_
