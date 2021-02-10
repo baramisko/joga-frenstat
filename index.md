@@ -9,14 +9,14 @@ _Jóga navrací ke kořenům, je to cesta, která nám ukazuje naše vnitřní J
 
 Služby jsou momentálně pozastaveny
 
-Lze se hlásit na pobyt na Antariku ve dvou termínech :
-
-[https://docs.google.com/document/d/17klPLSJ6HT-4w2ge525Uk9wrtq5PshppTDT4x4UenQ4/edit?usp=sharing](https://docs.google.com/document/d/17klPLSJ6HT-4w2ge525Uk9wrtq5PshppTDT4x4UenQ4/edit?usp=sharing "https://docs.google.com/document/d/17klPLSJ6HT-4w2ge525Uk9wrtq5PshppTDT4x4UenQ4/edit?usp=sharing")
-
-12 - 14.2.2021
-
-a druhý termín 5-7.3.2021
+Lze se hlásit na pobyt na Antariku v termínu :
 
 [https://docs.google.com/document/d/1-N0GTfLcKCAI-HDtf68YelxcnUmRnjgg3okM50k_Rqw/edit?usp=sharing](https://docs.google.com/document/d/1-N0GTfLcKCAI-HDtf68YelxcnUmRnjgg3okM50k_Rqw/edit?usp=sharing "https://docs.google.com/document/d/1-N0GTfLcKCAI-HDtf68YelxcnUmRnjgg3okM50k_Rqw/edit?usp=sharing")
 
-_Pokud by se pobytu z důvodu nařízení vlády nekonaly, zálohy se Vám automaticky přesouvají na další možný termín, s neomezenou platností roku 2021._
+_Pobyt se bude konat v každém případě, buď s programem nebo bez, ptejte se na info_
+
+V Srpnu bude pobyt v tomto termínu 16.8. až 22.8.2021
+
+Info zde
+
+[https://docs.google.com/document/d/1aENY0RTpTHdtHHrW1CfBOJGlCyuyj5ACplhtsH_u7Os/edit?usp=sharing](https://docs.google.com/document/d/1aENY0RTpTHdtHHrW1CfBOJGlCyuyj5ACplhtsH_u7Os/edit?usp=sharing "https://docs.google.com/document/d/1aENY0RTpTHdtHHrW1CfBOJGlCyuyj5ACplhtsH_u7Os/edit?usp=sharing")
