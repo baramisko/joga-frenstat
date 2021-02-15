@@ -21,10 +21,6 @@ _1350,- Kč_
 
 **Lekce jógy** 150,- Kč/ pravidelná, 200,-/jednorázová
 
-**Lekce individuální jógy**, sestavy na míru podle možností a fyzického zdraví klienta 650,- Kč v době trvání cca hodinu až dvě
-
-**Lekce individuální skupinové jógy** ( dárek, rozlučka se svobodou, narozeniny apod...) minimálně 5 lidí, za každého  300,- Kč
-
 _Uvedené ceny jsou zcela dobrovolné a mohou se lišit dle domluvy a individuálního přístupu._
 
 _Chcete-li na všem se domluvíme._
