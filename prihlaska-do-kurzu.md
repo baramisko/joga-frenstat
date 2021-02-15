@@ -17,7 +17,7 @@ _850,- Kč_
 
 **_Masáž 120 minut_** _( Prodloužená )_
 
-_1300,- Kč_
+_1350,- Kč_
 
 **Lekce jógy** 150,- Kč/ pravidelná, 200,-/jednorázová
 
