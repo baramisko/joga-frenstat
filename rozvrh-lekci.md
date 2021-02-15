@@ -30,6 +30,6 @@ Bára
 Jogínka s vlastní praxí - jóga studio ve Frenštátě pod Radhoštěm  
 Aromaterapeutické masáže
 
-Kurzy pozastaveny s ohledem na situaci, pište si o masáže aj.
+Kurzy pozastaveny s ohledem na situaci.
 
 ![](/uploads/diwaliposterimage-1.webp)
