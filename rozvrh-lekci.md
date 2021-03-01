@@ -13,9 +13,4 @@ Přeji Vám silné nervy, vůli a hluboké uvnitřnění.
 Subham astu Sarvadžagatam  
 Bára
 
-Jogínka s vlastní praxí - jóga studio ve Frenštátě pod Radhoštěm  
-Aromaterapeutické masáže
-
-Kurzy pozastaveny s ohledem na situaci.
-
 ![](/uploads/diwaliposterimage-1.webp)
