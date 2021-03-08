@@ -46,3 +46,5 @@ jekyll_admin:
     - staticfiles
     - datafiles
     - configuration
+
+exclude: [vendor]      
