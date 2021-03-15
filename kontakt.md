@@ -26,8 +26,7 @@ Studio je na adrese:
 
 Havlíčkova 31,  
 744 01 Frenštát pod Radhoštěm,  
-Česká Republika  
-Č.u.:1123432000/2700
+Česká Republika
 
 IČO: 07388781
 
