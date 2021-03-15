@@ -13,13 +13,15 @@ _Samozřejmě ,kdo chce výhradně masáž, dostane beze slov masáž._
 
 **_Masáž_** **_90 minut_** _( Základní )_
 
-_850,- Kč_
+_950,- Kč_
 
 **_Masáž 120 minut_** _( Prodloužená )_
 
 _1350,- Kč_
 
-**Lekce jógy** 150,- Kč/ pravidelná, 200,-/jednorázová
+**Lekce jógy** 150,- Kč/ pravidelná, 200,-/jednorázová -skupina
+
+**Lekce jógové terapie** _tzn. na míru, včetně doporučení domácí praxe, stravy, ásán k dané obtíži, vše je velmi individuální a celý proces trvá asi hodinu až hodinu a půl,četnost schůzek snižuje cenu. 600 ,- 1200,- podle možností a docházení_
 
 _Uvedené ceny jsou zcela dobrovolné a mohou se lišit dle domluvy a individuálního přístupu._
 
