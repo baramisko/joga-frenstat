@@ -21,7 +21,7 @@ _1350,- Kč_
 
 **Lekce jógy** 150,- Kč/ pravidelná pro docházející, 200,-/jednorázová či nepravidelná-skupina
 
-**Lekce jógové terapie** _tzn. na míru, včetně doporučení domácí praxe, stravy, ásán k dané obtíži, vše je velmi individuální a celý proces trvá asi hodinu až hodinu a půl,četnost schůzek snižuje cenu. 600 ,- 1200,- podle možností a docházení_
+**Lekce jógové terapie** _tzn. na míru, včetně doporučení domácí praxe, stravy, ásán k dané obtíži, vše je velmi individuální a celý proces trvá asi hodinu až hodinu a půl,četnost schůzek snižuje cenu. 800 ,- 1200,- podle možností a docházení_
 
 _Uvedené ceny jsou zcela dobrovolné a mohou se lišit dle domluvy a individuálního přístupu._
 
