@@ -33,12 +33,6 @@ _Jedním z Nejbližších stylů je mi přes 20 let stará Aštanga a Jivamukti 
 
 _Vzdělání se v oboru neberu skokově dle kurzů ale především celoživotně a komplexně. Jestliže jsem absolvovala kurz Hatha Yoga,neznamená to nutně,že jsem lektorem Hatha Yoga, velice si vážím sebevzdělání a nespím na vavřínech :)_
 
-_Jedním z mých učitelů je učitelkou, přítelem v józe a mentorkou jógy je Eva Berkana, se kterou jsem absolvovala roční kurz terapeutické jógy a jógy pro děti._
-
-_Jsme stále ve spojení a mé další vzdělávání v józe pokračuje částečně pod vedením Evy._
-
-_Evy si vážím ,jelikož její jógová cesta je opravdu ze srdce a je pro mne jogínka od hlavy po paty, tělem i duší._
-
 _Obrovským přínosem pro vzdělání jsou mi víkendové kurzy jógy Evy Svobodové Kizekové(www.jogasevou.cz), při kterém jsem měla možnost nahlédnout i do reflexní terapie ajurvédských masáží._
 
 ![](/uploads/IMG_20190704_104009_457-2.jpg)
@@ -51,7 +45,7 @@ _Jsem absolventkou mnoha jógových seminářů a cest do zemí, kdy jsem měla 
 
 _Intenzivně jóguji a věnuji se józe od roku 2014_
 
-_A hlavně! Mne to baví! :)_ 
+_A hlavně! Mne to baví! :)_
 
 _Mám za sebou kurz Hatha a Vinyasa jógy ,kurz jógy vědomí neboli Kundalíni jóga._
 
