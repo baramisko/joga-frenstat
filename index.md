@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Vítej...
+title: Vítejte
 
 ---
 ![](/uploads/63e96ef7ce14c16435f772e8735c74d8.jpg)
