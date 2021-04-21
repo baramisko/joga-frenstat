@@ -7,6 +7,8 @@ layout: page
 
 _Přála bych si, abyste u mne nalezli to , co vyzařuje mé srdce, ostatní slova jsou zbytečná....._
 
+![](/uploads/img_20210421_102053.jpg)
+
 _Celý život kroužím okolo vůní, energií, péče o těla a ducha a tak jsem po letech v sociálních službách, práce s dětmi, lidmi, se závislými na různých vnějších vjemů opustila instituty a vrhla se do vlastního světa._
 
 _Světa masáží_
@@ -64,5 +66,3 @@ _Meditace a fasciální yoga,rituály,Spinal Yoga - Dambar Pan, Nepál 1 měsíc
 _Léčení Reiki - aktuálně v učení_
 
 _K citlivosti pro komunikaci a neodsuzování jakéhokoliv problému tělesné roviny či duševní mi částečně pomohlo studium Sociálních věd a psychologie v Ostravě, z kurzů po studiích jsem absolvovala např. Psychosomatické potíže a úzkosti,problematika drogově závislých, poruchy příjmu potravy aj. Pokud by Vás zajímala terapie tímto směrem,lze se domluvit._
-
-![](/uploads/img_0146.JPG)
