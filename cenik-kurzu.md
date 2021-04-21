@@ -7,8 +7,6 @@ layout: page
 
 _Přála bych si, abyste u mne nalezli to , co vyzařuje mé srdce, ostatní slova jsou zbytečná....._
 
-![](/uploads/IMG_20200224_134609_320.jpg)
-
 _Celý život kroužím okolo vůní, energií, péče o těla a ducha a tak jsem po letech v sociálních službách, práce s dětmi, lidmi, se závislými na různých vnějších vjemů opustila instituty a vrhla se do vlastního světa._
 
 _Světa masáží_
@@ -33,13 +31,9 @@ _Jedním z Nejbližších stylů je mi přes 20 let stará Aštanga a Jivamukti 
 
 _Vzdělání se v oboru neberu skokově dle kurzů ale především celoživotně a komplexně. Jestliže jsem absolvovala kurz Hatha Yoga,neznamená to nutně,že jsem lektorem Hatha Yoga, velice si vážím sebevzdělání a nespím na vavřínech :)_
 
-_Obrovským přínosem pro vzdělání jsou mi víkendové kurzy jógy Evy Svobodové Kizekové(www.jogasevou.cz), při kterém jsem měla možnost nahlédnout i do reflexní terapie ajurvédských masáží._
-
 ![](/uploads/IMG_20190704_104009_457-2.jpg)
 
-_Evu vnímám nejen jako učitelku, ale jako kamarádku a v kontaktu jsme i v běžném životě._
-
-_Inspirací na mé cestě je Srí Sv. Gitanánda, díky kterému se sebevzdělávám denně řadu let a je mi neustále obrovským darem, dále je to pan_  [_Srí Chinmoy_](https://cs.wikipedia.org/wiki/%C5%A0r%C3%AD_%C4%8Cinmoj)_._
+_Inspirací na mé cestě je Srí Sv. Gitanánda, díky kterému se sebevzdělávám denně řadu let a je mi neustále obrovským darem, dále je to pan_  [_Srí Chinmoy_](https://cs.wikipedia.org/wiki/%C5%A0r%C3%AD_%C4%8Cinmoj)_. Dále Yogananda, Védy, Upanišady, pan Eduard Tomáš...._
 
 _Jsem absolventkou mnoha jógových seminářů a cest do zemí, kdy jsem měla možnost okusit pravou podstatu jógového života, jakou byl např. Nepál._
 
