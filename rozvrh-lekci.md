@@ -1,5 +1,5 @@
 ---
-title: Jóga, jógová terapie
+title: Kurzy Jógy
 layout: page
 
 ---
