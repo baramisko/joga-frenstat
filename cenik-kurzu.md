@@ -47,7 +47,7 @@ _Mám za sebou kurz Hatha a Vinyasa jógy ,kurz jógy vědomí neboli Kundalíni
 
 _Na mé cestě se neustále vzdělávám. Jóga není jen o asánách,neboli o tělesnu, není jen o dechu čili pranajámatických cvičení, je to komplexní dar duchovních učitelů a já s největší pokorou a úctou ráda předávám znalosti,kterými jsem byla obohacena._
 
-_Mým každodenním chlebem v józe je cesta Patanjalího a jógasuter,které mi ucelují životní pouť._
+_Mým každodenním chlebem v józe je cesta Patanjalího a jógasuter, které mi ucelují životní pouť._
 
 _Pokud Vám to přece jen nedá a chcete vědět, co jsem studovala či který kurz mám hotov tak prosím :_
 
