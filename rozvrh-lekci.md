@@ -3,9 +3,17 @@ title: Jóga, jógová terapie
 layout: page
 
 ---
-![](/uploads/IMG_20190730_104235_826.jpg)
+**_Nastávající kurzy Září 2021 - Prosinec 2021_**
 
-Jakmile budeme moci opět volně jógovat ve studiu, budou zde vypsány kurzy a lekce. Těšit se můžete na integrální jógu, praxi dechových a hluboce uvolňujících technik.
+**Jógová terapie** - vhodné pro kohokoli 1x týdně
+
+**Jógová škola** - pouze pro již praktikující v mém kurzu online, lze se zeptat na místo, probíráme hlubší aspekty a hlubší asány 1x týdně
+
+**Meditační techniky, dechové techniky** -doplňující a rozšiřující kurz pro posílení dechu, mysli a zklidnění 1x měsíčně, pro kohokoli
+
+**Dynamická jóga**- bez hlubšího aspektu pro ,,makače,, těla, lze kombinovat, vhodná pro ty, kteří chtějí využít především tělesné výhody jógy pro posílení
+
+Místo i den bude upřesněn vzhledem k požadavkům i mému programu.
 
 Přeji Vám silné nervy, vůli a hluboké uvnitřnění.
 
