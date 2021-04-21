@@ -1,8 +1,8 @@
 ---
 layout: page
-title: Ostatní služby
+title: Přihláška do kurzu
 
 ---
-**_Více mých služeb hledejte prosím zde : www.baranyja.eu_**
+Přihlásit se lze po předešlém kontaktu mailem na bara.nyja@seznam.cz, počet míst je omezen s ohledem na obsah a také souvislou praxi, na rozmezí sálu a také na pozornost ke každému žákovi zvlášť.
 
-_![](/uploads/216-2165067_hands-png-health-pinterest-massage-drawing-transparent-png.jpg)_
+**_Více mých služeb hledejte prosím zde : www.baranyja.eu_**
