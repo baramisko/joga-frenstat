@@ -43,8 +43,6 @@ _Intenzivně jóguji a věnuji se józe od roku 2014_
 
 _A hlavně! Mne to baví! :)_
 
-_Mám za sebou kurz Hatha a Vinyasa jógy ,kurz jógy vědomí neboli Kundalíni jóga._
-
 _Na mé cestě se neustále vzdělávám. Jóga není jen o asánách,neboli o tělesnu, není jen o dechu čili pranajámatických cvičení, je to komplexní dar duchovních učitelů a já s největší pokorou a úctou ráda předávám znalosti,kterými jsem byla obohacena._
 
 _Mým každodenním chlebem v józe je cesta Patanjalího a jógasuter, které mi ucelují životní pouť._
