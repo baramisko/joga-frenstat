@@ -51,7 +51,7 @@ _Pokud Vám to přece jen nedá a chcete vědět, co jsem studovala či který k
 
 _Asthanga yoga - Dimitris Dibelo_
 
-_Terapeutická jóga,Bihárska škola -Eva Berkana- Eva je mým mentorem na dále a stále se vzdělávám částečně pod jejím vedením, jejíž cesty a učení si moudře vážím_
+_Terapeutická jóga,Bihárska škola, Kriya jóga v aktuálním vzdělávání se -Eva Berkana- Eva je mým mentorem na dále a stále se vzdělávám částečně pod jejím vedením, jejíž cesty a učení si moudře vážím_
 
 _Jivamukti yoga for master class - Jules Febre_
 
