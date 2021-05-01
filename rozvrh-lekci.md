@@ -7,11 +7,11 @@ layout: page
 
 **Jógová terapie** - vhodné pro kohokoli 1x týdně
 
-**Jógová praxe** - pouze pro již praktikující v mém kurzu online, lze se zeptat na místo, probíráme hlubší aspekty a hlubší asány 1x týdně
+**Jógová praxe** - pouze pro již praktikující v mém kurzu online, lze se zeptat na místo, probíráme hlubší aspekty a hlubší ásany 1x týdně
 
 **Meditační techniky, dechové techniky** -doplňující a rozšiřující kurz pro posílení dechu, mysli a zklidnění 1x měsíčně, pro kohokoli
 
-**Dynamická jóga**- bez hlubšího aspektu pro ,,makače,, těla, lze kombinovat, vhodná pro ty, kteří chtějí využít především tělesné výhody jógy pro posílení
+**Dynamická jóga**- pro ,,makače,, těla, lze kombinovat, vhodná pro ty, kteří chtějí využít především tělesné výhody jógy pro posílení
 
 Místo i den bude upřesněn vzhledem k požadavkům i mému programu.
 
