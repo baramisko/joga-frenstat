@@ -29,7 +29,7 @@ _Bude mi ctí s Vámi projít cestu k poznání sebe, v mužském i ženském as
 
 _Neustálá praxe, studium a touha po lepším životě pro sebe i ostatní je mým pilířem jógy, je to cesta, díky které jsem si uvědomila své tělo, svou podstatu mysli, své nároky._
 
-_Jedním z Nejbližších stylů je mi přes 20 let stará Aštanga a Jivamukti jóga avšak momentálně se věnuji spíše prapůvodní józe, tantra józe, meditaci v pohybu a naslouchání svého těla, odráží se to i v hloubce lekcí, oba směry zdokonaluji praxí samotnou tak pod vedením učitelů._
+_Momentálně se věnuji spíše prapůvodní józe, tantra józe, meditaci v pohybu a naslouchání svého těla, odráží se to i v hloubce lekcí, oba směry zdokonaluji praxí samotnou tak pod vedením učitelů._
 
 _Vzdělání se v oboru neberu skokově dle kurzů ale především celoživotně a komplexně. Jestliže jsem absolvovala kurz Hatha Yoga,neznamená to nutně,že jsem lektorem Hatha Yoga, velice si vážím sebevzdělání a nespím na vavřínech :)_
 
