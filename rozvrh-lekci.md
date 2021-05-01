@@ -7,7 +7,7 @@ layout: page
 
 **Jógová terapie** - vhodné pro kohokoli 1x týdně
 
-**Jógová škola** - pouze pro již praktikující v mém kurzu online, lze se zeptat na místo, probíráme hlubší aspekty a hlubší asány 1x týdně
+**Jógová praxe** - pouze pro již praktikující v mém kurzu online, lze se zeptat na místo, probíráme hlubší aspekty a hlubší asány 1x týdně
 
 **Meditační techniky, dechové techniky** -doplňující a rozšiřující kurz pro posílení dechu, mysli a zklidnění 1x měsíčně, pro kohokoli
 
