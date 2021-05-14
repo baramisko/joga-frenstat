@@ -9,6 +9,8 @@ _Jóga navrací ke kořenům, je to cesta, která nám ukazuje naše vnitřní J
 
 V Srpnu bude pobyt v tomto termínu 18.8. až 22.8.2021
 
+POZOR, poslední 4 volné pokoje!
+
 Info zde
 
 [https://docs.google.com/document/d/1aENY0RTpTHdtHHrW1CfBOJGlCyuyj5ACplhtsH_u7Os/edit?usp=sharing](https://docs.google.com/document/d/1aENY0RTpTHdtHHrW1CfBOJGlCyuyj5ACplhtsH_u7Os/edit?usp=sharing "https://docs.google.com/document/d/1aENY0RTpTHdtHHrW1CfBOJGlCyuyj5ACplhtsH_u7Os/edit?usp=sharing")
