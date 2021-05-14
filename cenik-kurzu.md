@@ -7,6 +7,8 @@ layout: page
 
 _Přála bych si, abyste u mne nalezli to , co vyzařuje mé srdce, ostatní slova jsou zbytečná....._
 
+_Intenzivně jóguji a věnuji se józe od roku 2014_
+
 ![](/uploads/img_20210421_102053.jpg)
 
 _Celý život kroužím okolo vůní, energií, péče o těla a ducha a tak jsem po letech v sociálních službách, práce s dětmi, lidmi, se závislými na různých vnějších vjemů opustila instituty a vrhla se do vlastního světa._
