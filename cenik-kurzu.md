@@ -41,8 +41,6 @@ _Inspirací na mé cestě je Srí Sv. Gitanánda, díky kterému se sebevzdělá
 
 _Jsem absolventkou mnoha jógových seminářů a cest do zemí, kdy jsem měla možnost okusit pravou podstatu jógového života, jakou byl např. Nepál._
 
-_Intenzivně jóguji a věnuji se józe od roku 2014_
-
 _A hlavně! Mne to baví! :)_
 
 _Na mé cestě se neustále vzdělávám. Jóga není jen o asánách,neboli o tělesnu, není jen o dechu čili pranajámatických cvičení, je to komplexní dar duchovních učitelů a já s největší pokorou a úctou ráda předávám znalosti,kterými jsem byla obohacena._
