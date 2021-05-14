@@ -43,7 +43,7 @@ _Jsem absolventkou mnoha jógových seminářů a cest do zemí, kdy jsem měla 
 
 _A hlavně! Mne to baví! :)_
 
-_Na mé cestě se neustále vzdělávám. Jóga není jen o asánách,neboli o tělesnu, není jen o dechu čili pranajámatických cvičení, je to komplexní dar duchovních učitelů a já s největší pokorou a úctou ráda předávám znalosti,kterými jsem byla obohacena._
+_Na mé cestě se neustále vzdělávám. Jóga není jen o asánách, nebo-li o tělesnu, není jen o dechu čili pranajámatických cvičení, je to komplexní dar duchovních učitelů a já s největší pokorou a úctou ráda předávám znalosti, kterými jsem byla obohacena._
 
 _Mým každodenním chlebem v józe je cesta Patanjalího a jógasuter, které mi ucelují životní pouť._
 
