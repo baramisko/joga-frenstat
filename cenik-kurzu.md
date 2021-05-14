@@ -61,6 +61,4 @@ _Ayurvédská masáž a techniky - škola Ayurvédy Dr.Mazala, Krkonoše_
 
 _Meditace a fasciální yoga,rituály,Spinal Yoga - Dambar Pan, Nepál 1 měsíc intenzivně_
 
-_Léčení Reiki - aktuálně v učení_
-
 _K citlivosti pro komunikaci a neodsuzování jakéhokoliv problému tělesné roviny či duševní mi částečně pomohlo studium Sociálních věd a psychologie v Ostravě, z kurzů po studiích jsem absolvovala např. Psychosomatické potíže a úzkosti,problematika drogově závislých, poruchy příjmu potravy aj. Pokud by Vás zajímala terapie tímto směrem,lze se domluvit._
