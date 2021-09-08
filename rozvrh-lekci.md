@@ -3,7 +3,7 @@ title: Kurzy Jógy
 layout: page
 
 ---
-**_Volný termín od Září je_**
+**_Kurzy začínají 3 týden v Září 2021_**
 
 **STŘEDA 16:00 - 17:15 Otevřená lekce jógy, každý týden**
 
