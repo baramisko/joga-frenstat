@@ -5,7 +5,7 @@ layout: page
 ---
 **_Kurzy začínají 3 týden v Září 2021_**
 
-**STŘEDA 16:00 - 17:15 Otevřená lekce jógy, každý týden**
+Středa 17:15 ,poslední volné místo
 
 **_ČTVRTEK každý týden od 16:15 do 17:30_** _volné 2 místa_
 
