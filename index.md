@@ -9,4 +9,6 @@ _Jóga navrací ke kořenům, je to cesta, která nám ukazuje naše vnitřní J
 
 Aktuálně :
 
-![](/uploads/ochrana-vlastniho-chramu-page0001-1.jpg)
+22\.10. Pokračující a navazující kurz psychické a fyzické sebeobrany, vedená meditace, vedená podpora pro ochranu obydlí, situační ukázka vykuřování a ochranných symbolů, hlubší aspekty.
+
+Volná 2 místa, 16:30 až 18:00 450 Kč,- pro klienty jógy 350,-
