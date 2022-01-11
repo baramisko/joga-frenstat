@@ -3,7 +3,7 @@ layout: page
 title: Vítejte
 
 ---
-_Pro veškeré aktualizace prosím přejděte na Facebook Jóga Frenštát, může se stát, že stránka nebude po novém roce funkční._
+_Pro veškeré aktualizace prosím přejděte na Facebook Jóga Frenštát_
 
 _Děkuji a těším se na setkání, Bára_
 
