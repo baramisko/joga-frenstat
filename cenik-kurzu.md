@@ -5,6 +5,8 @@ layout: page
 ---
 **_Více k dalším službám, uvedeno zde : www.baranyja.eu_**
 
+![](/uploads/img_20211223_093913_240.jpg)
+
 _Přála bych si, abyste u mne nalezli to , co vyzařuje mé srdce, ostatní slova jsou zbytečná....._
 
 _Intenzivně jóguji a věnuji se józe od roku 2014_
