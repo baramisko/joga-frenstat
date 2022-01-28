@@ -5,6 +5,10 @@ title: Vítejte
 ---
 _Pro veškeré aktualizace prosím přejděte na Facebook Jóga Frenštát_
 
+Aktuálně:
+
+![](/uploads/11043_0.jpg)
+
 _Děkuji a těším se na setkání, Bára_
 
 ![](/uploads/475a86c222a27e6637707ee65bb69f2d.jpg)
