@@ -16,3 +16,5 @@ _Děkuji a těším se na setkání, Bára_
 ![](/uploads/475a86c222a27e6637707ee65bb69f2d.jpg)
 
 _Jóga navrací ke kořenům, je to cesta, která nám ukazuje naše vnitřní Já a duši v celistvosti a tuto celistvost Vám chci na mých hodinách předat s pokorou a úctou ke každému z Vás._
+
+![](/uploads/akyja-zvukova-page0001.jpg)![](/uploads/akyja-masaz1-page0001.jpg)
