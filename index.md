@@ -7,9 +7,7 @@ _Pro veškeré aktualizace prosím přejděte na Facebook Jóga Frenštát_
 
 Aktuálně:
 
-[https://fb.me/e/2rhR6xAl7](https://fb.me/e/2rhR6xAl7 "https://fb.me/e/2rhR6xAl7") Harmonizace zvukem
-
-Pobyt na Antariku v Březnu je vyprodán, zcela.
+![](/uploads/srdecne-jste-zvani-na-zvukovou-harmonizaci-kristalovymi-misami-novy-term_1.jpg)
 
 Pobyt v Srpnu je zde [https://docs.google.com/document/d/1XUiLzmU_3qll1WV-rksKUUjOm612UkABx0YB90NjNp0/edit?usp=sharing](https://docs.google.com/document/d/1XUiLzmU_3qll1WV-rksKUUjOm612UkABx0YB90NjNp0/edit?usp=sharing "https://docs.google.com/document/d/1XUiLzmU_3qll1WV-rksKUUjOm612UkABx0YB90NjNp0/edit?usp=sharing")
 
