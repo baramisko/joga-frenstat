@@ -3,9 +3,9 @@ title: Ceník
 layout: page
 
 ---
-**_Pro zájemce o jógu od Září - 180,- Kč 70 ´_**
+_Cena za lekci je 180,- Kč, otevřené lekce._
 
-Kurz tvoří měsíční kurzovné 720,-
+Za měsíc předem je to 720,-
 
 **_pro zájemce o další služby www.baranyja.eu_**
 
