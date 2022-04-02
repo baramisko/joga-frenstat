@@ -3,10 +3,7 @@ title: Doporučení a etika
 layout: page
 
 ---
-
 _Vcházíte –li do studia na lekci jógy, prosím vcházejte již ode dveří vstupních dole potichu…._
-
-_Zavírejte je za sebou, žijí zde lidé, kterým dům patří…_
 
 _Nehlučte zbytečně…._
 
