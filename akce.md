@@ -3,7 +3,7 @@ layout: page
 title: Přihláška do kurzu
 
 ---
-Otevřená lekce ranní jógy, která se konná nad pět lidí , přihlásit se lze zde : [https://www.supersaas.cz/schedule/Ranni_joga_6-7_hodina/ranni_joga_6-7_hodina](https://www.supersaas.cz/schedule/Ranni_joga_6-7_hodina/ranni_joga_6-7_hodina "https://www.supersaas.cz/schedule/Ranni_joga_6-7_hodina/ranni_joga_6-7_hodina")
+Otevřená lekce ranní jógy, která je vždy nad pět lidí , přihlásit se lze zde : [https://www.supersaas.cz/schedule/Ranni_joga_6-7_hodina/ranni_joga_6-7_hodina](https://www.supersaas.cz/schedule/Ranni_joga_6-7_hodina/ranni_joga_6-7_hodina "https://www.supersaas.cz/schedule/Ranni_joga_6-7_hodina/ranni_joga_6-7_hodina")
 
 Odhlášení pouze sms!
 
