@@ -3,6 +3,10 @@ title: Ceník
 layout: page
 
 ---
+Od Září se lekce zvedne na 200,-Kč s ohledem na zvednutí nájmu, tepla aj.
+
+Ceník je platný od 10.5.2022 do Září 2022.
+
 _Cena za lekci je 180,- Kč, otevřené lekce._
 
 Za měsíc předem je to 720,-
