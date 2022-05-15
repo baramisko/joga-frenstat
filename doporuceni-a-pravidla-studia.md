@@ -44,3 +44,7 @@ _Masáže jsou tísíce let staré techniky, které byly zapomenuty a přetransf
 **Rituály a terapie**
 
 _Vždy chodíme s otevřenou myslí a srdcem, avšak v sobě v nitru natolik s respektem, že nejdeme hodit na druhého vlastní problémy, ale chceme je vyřešit prostřednictvím terapie, masáže či rituálu._
+
+Více na www.baranyja.eu
+
+www.selafee.cz
