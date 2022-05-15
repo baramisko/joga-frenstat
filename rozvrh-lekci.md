@@ -5,9 +5,9 @@ layout: page
 ---
 **_Aktuálně 2022:_**
 
-Kurzy naplněny.
+Kurzy naplněny - aktuálně se lze hlásit na úterý 18:30 a po té na prázdniny středu 17:15.
 
-Ranní lekce [https://www.supersaas.cz/schedule/Ranni_joga_6_7_hodina/ranni_joga_6-7_hodina_](https://www.supersaas.cz/schedule/Ranni_joga_6-7_hodina/ranni_joga_6-7_hodina  "https://www.supersaas.cz/schedule/Ranni_joga_6-7_hodina/ranni_joga_6-7_hodina")
+Ranní lekce budou opět od Září 2022.
 
 ranní lekce je vždy v pondělí a nad 5 lidí, pokud vidíte menší počet, lekce se nekoná, odhlášení pouze sms.
 
