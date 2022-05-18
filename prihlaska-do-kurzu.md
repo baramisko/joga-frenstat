@@ -3,7 +3,7 @@ title: Ceník
 layout: page
 
 ---
-Od Září se lekce zvedne na 200,-Kč s ohledem na zvednutí nájmu, tepla aj.
+Od Září se lekce zvedne na 200,-Kč s ohledem na zvednutí nájmu, tepla aj. pro kurzisty bude cena stále stejná.
 
 Ceník je platný od 10.5.2022 do Září 2022.
 
