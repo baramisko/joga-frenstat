@@ -69,4 +69,6 @@ _Meditace a fasciální yoga,rituály,Spinal Yoga - Dambar Pan, Nepál 1 měsíc
 
 _K citlivosti pro komunikaci a neodsuzování jakéhokoliv problému tělesné roviny či duševní mi částečně pomohlo studium Sociálních věd a psychologie v Ostravě, z kurzů po studiích jsem absolvovala např. Psychosomatické potíže a úzkosti,problematika drogově závislých, poruchy příjmu potravy aj. Pokud by Vás zajímala terapie tímto směrem,lze se domluvit._
 
+![](/uploads/img_20220303_180155_420.jpg)
+
 ![](/uploads/cemu-se-venuji-a-co-mohu-nabidnout-page0001.jpg)
