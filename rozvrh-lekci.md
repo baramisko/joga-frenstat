@@ -3,17 +3,17 @@ title: Kurzy Jógy
 layout: page
 
 ---
-**_Aktuálně 2022:_** 
+**_Aktuálně 2022: _**
 
- Aktuálně se lze hlásit na úterý 18:30 a po té na prázdniny středu 17:15.
+ _Aktuálně se lze hlásit na úterý 18:30 a po té na prázdniny středu 17:15._
 
-Cena za prázdninovou lekci je 180,-Kč / 70´.
+_Cena za prázdninovou lekci je 180,-Kč / 70´._
 
-Ranní lekce budou opět od Září 2022.
+_Ranní lekce budou opět od Září 2022._
 
-Lekce od Září , budou zveřejněny včas zde :)
+_Lekce od Září , budou zveřejněny včas zde :)_
 
-těším se na setkání
+_těším se na setkání_
 
 Subham astu Sarvadžagatam  
 Bára

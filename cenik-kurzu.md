@@ -1,5 +1,5 @@
 ---
-title: O mně
+title: O lektorce
 layout: page
 
 ---
