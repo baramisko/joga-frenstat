@@ -13,8 +13,6 @@ Pár milých slov ,spokojených klientů jógy a masáží...
 
 Na jógu s Bárou jsem narazila čistě náhodou prostřednictvím sociálních sítí, skrze společné známé a mohu upřímně říct, že je to jedna z nejlepších náhod, jakou jsem si mohla přát. Již dříve jsem navštěvovala cvičební skupiny se zaměřením na zumbu, aerobik, pilates, ale nikdy jsem u ničeho nevydržela delší čas. Potýkala jsem se také s bolestí zad a zkrácenými svaly, spousta lidi mi doporučovala jógové cvičení, a proto když jsem viděla oznámení, že Bára začíná s lekcemi jógy ve Frenštátě, neváhala jsem a přihlásila se. Hned od počátku jsem byla velmi nadšená. Oceňovala jsem způsob vedení lekcí a neuvěřitelně přátelskou a příjemnou atmosféru ve skupině, kterou jsem ještě nikdy nikde nezažila. Nevím, jak bych tuto atmosféru blíže specifikovala, ale i přes to, že jsem v počátcích nikoho neznala, cítila jsem pocit sounáležitosti a otevřenosti, který mě nabíjel neskutečně pozitivní energií. Určitě je toto klima dáno i lektorem, který jógu vede a musím říct, že v tomhle je Bára naprosto skvělá. Vždy z lekcí odcházím s úsměvem a dobrým pocitem. Pokud tedy uvažujete o józe s Bárou, já za sebe lekce můžu jen a jen doporučit. Nejenže se krásně protáhnete a procvičíte, ale poznáte své tělo, naučíte se jej vnímat, naučíte se pracovat s dechem, relaxovat a v neposlední řadě poznáte velmi příjemný kolektiv. Mně dala jóga s Bárou opravdu hodně a jsem neskutečně ráda, že společně cvičíme již třetím rokem 😊.
 
-Informace ,, o mně,, dole na stránce
-
 ### Jak se objednat?
 
 emailem na Bara.Nyja@seznam.cz  
@@ -24,9 +22,7 @@ nebo telefonicky na 608 350 759, klidně i smskou
 
 Studio je na adrese:
 
-Havlíčkova 31,  
-744 01 Frenštát pod Radhoštěm,  
-Česká Republika
+Kyčera Od, Frenštát pod Radhoštěm, Studio jógy, 2 patro ochoz, naproti obuvi, bílé dveře.
 
 IČO: 07388781
 
