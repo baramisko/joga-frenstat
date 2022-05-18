@@ -13,4 +13,6 @@ Děkuji za důvěru
 
 Bára
 
+![](/uploads/img_20220303_180155_420.jpg)
+
 **_Více mých služeb hledejte prosím zde : www.baranyja.eu_**
