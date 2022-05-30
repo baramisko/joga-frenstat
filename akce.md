@@ -3,6 +3,9 @@ layout: page
 title: Přihláška do kurzu
 
 ---
+Čtvrtek plně naplněn, do tohoto kurzu se nelze hlásit.
+
+Od Září bude kurz pro začátečníky - pouze pro nové zájemce.
 
 Od Září nás čeká nový běh lekcí, o kterém budu informovat zde včas.
 
