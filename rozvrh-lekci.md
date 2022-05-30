@@ -5,15 +5,11 @@ layout: page
 ---
 **_Aktuálně 2022: _**
 
- _Aktuálně se lze hlásit na úterý 18:30 a po té na prázdniny středu 17:15._
+Od Září se lze hlásit do kurzu pro začátečníky - pouze pro nové zájemce.
 
-_Cena za prázdninovou lekci je 180,-Kč / 70´._
+Včas budu informovat zde na stránkách.
 
-_Ranní lekce budou opět od Září 2022._
-
-_Lekce od Září , budou zveřejněny včas zde :)_
-
-_těším se na setkání_
+Přeji krásný start léta!
 
 Subham astu Sarvadžagatam  
 Bára
