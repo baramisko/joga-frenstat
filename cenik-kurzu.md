@@ -3,7 +3,6 @@ title: O lektorce
 layout: page
 
 ---
-**_Více k dalším službám, uvedeno zde : www.baranyja.eu_**
 
 Jmenuji se Bára
 
