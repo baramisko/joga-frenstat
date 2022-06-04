@@ -70,4 +70,4 @@ _K citlivosti pro komunikaci a neodsuzování jakéhokoliv problému tělesné r
 
 ![](/uploads/img_20220303_180155_420.jpg)
 
-![](/uploads/cemu-se-venuji-a-co-mohu-nabidnout-page0001.jpg)
+více k tématu na www.baranyja.eu
