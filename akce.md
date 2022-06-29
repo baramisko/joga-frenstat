@@ -3,17 +3,15 @@ layout: page
 title: Přihláška do kurzu
 
 ---
-Čtvrtek plně naplněn, do tohoto kurzu se nelze hlásit.
+_Od Září 2022 bude kurz pro začátečníky - pouze pro nové zájemce._
 
-Od Září bude kurz pro začátečníky - pouze pro nové zájemce.
+_Od Září nás čeká nový běh lekcí, o kterém budu informovat zde včas._
 
-Od Září nás čeká nový běh lekcí, o kterém budu informovat zde včas.
+_Přeji krásný začátek léta!_
 
-Přeji krásný začátek léta!
+_Děkuji za důvěru_
 
-Děkuji za důvěru
-
-Bára
+_Bára_
 
 ![](/uploads/63e96ef7ce14c16435f772e8735c74d8.jpg)
 
