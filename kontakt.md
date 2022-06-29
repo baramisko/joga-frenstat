@@ -3,6 +3,8 @@ layout: page
 title: Recenze a kontakt
 
 ---
+**_E-shop s aromaterapií: www.selafee.cz_**
+
 Pár milých slov ,spokojených klientů jógy a masáží...
 
 ,,Jóga s Bárou je rozhodne jedna z najzmysluplnějších vecí,ktoré vykonávám pre svoje telo a ducha! Barča vždy vykúzlí dokonalú rovnováhu medzi cvičením a relaxaciou, takže po treningu mám telo unavené a mysel oddýchnutú. Bolesti ktoré ma trápili miznú a telo cítí aj svaly o ktorých ani nevedelo. Okrem toho je Barča úžasná lektorka s obrovyským srdcom čo je poznať na prístupe a doslova ním zlepší deň. Ďakujem! A chalani! S Barčou sa nebude cítit ako srágory, to Vám garantujem!,, Palo Š.
