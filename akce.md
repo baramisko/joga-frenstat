@@ -1,11 +1,13 @@
 ---
 layout: page
-title: Přihláška do kurzu
+title: Ostatní služby
 
 ---
+**_K ostatním službám jako jsou masáže a harmonizace zvukem, workshopy aj, navštivte prosím www.baranyja.eu_**
+
 _Od Září 2022 bude kurz pro začátečníky - pouze pro nové zájemce._
 
-_Od Září nás čeká nový běh lekcí, o kterém budu informovat zde včas. Kurz čtvrteční lekce běží stále dál v 16:15, přes léto si dáváme pauzičku a od Září jedeme dál:)_ 
+_Od Září nás čeká nový běh lekcí, o kterém budu informovat zde včas. Kurz čtvrteční lekce běží stále dál v 16:15, přes léto si dáváme pauzičku a od Září jedeme dál:)_
 
 _Přeji krásný začátek léta!_
 
