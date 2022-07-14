@@ -5,11 +5,7 @@ layout: page
 ---
 **_Aktuálně 2022: _**
 
-![](/uploads/silence-1600x900.jpg)
-
-Od Září se lze hlásit do kurzu pro začátečníky - pouze pro nové zájemce.
-
-Včas budu informovat zde na stránkách.
+![](/uploads/page0001-1.jpg)
 
 Přeji krásný start léta!
 
