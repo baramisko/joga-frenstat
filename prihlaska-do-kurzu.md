@@ -3,14 +3,16 @@ title: Ceník
 layout: page
 
 ---
-Od Září se lekce zvedne na 200,-Kč s ohledem na zvednutí nájmu, tepla aj. pro kurzisty bude cena stále stejná.
+Lekce jógy - _jednorázově tzn. nejste v kurzu **200,**-Kč_
 
-Ceník je platný od 10.5.2022.
+Kurz měsíčně - **_180,-_** _Kč **x počet dní** v měsíci daného kurzu_
 
-_Cena za lekci je 180,- Kč, otevřené lekce._
+_Individuální lekce jógy na míru **890,-** Kč_
 
-Za měsíc předem ,čili kurz je 180 x počet dní v daném měsíci.
+**Aromaterapeutická masáž** 
 
-**_pro zájemce o další služby www.baranyja.eu_**
+80´ **1100**,- , ( _zahrnuje i vlastní esenci pokud člověk zrovna řeší psychický či fyzický problém na míru_ )
 
-**_Namasté_**
+**Rekondiční masáž celého těla**
+
+ ( _zahrnuje reflexní terapii, uvolňovací techniky měkké, rehabilitace lymfy a meridánů, masáž je rovněž velmi uvolňující pro kloubní aparát a svaly, po sportu, porodu aj._) **60´ 850,- Kč , 80 ´ 1000,-**
