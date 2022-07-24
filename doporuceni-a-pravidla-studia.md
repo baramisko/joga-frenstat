@@ -40,11 +40,3 @@ _Neprovozuji žádné erotické techniky ani nenabízím žádnou službu týkaj
 _Vážím si lidského těla a přistupuji k němu s respektem a úctou…_
 
 _Masáže jsou tísíce let staré techniky, které byly zapomenuty a přetransformovány chybně na cosi vyjímečného, až osobního. U masáže jsem prostředníkem energie, kterou Vy dostáváte skrze prostor a uvolnění…_
-
-**Rituály a terapie**
-
-_Vždy chodíme s otevřenou myslí a srdcem, avšak v sobě v nitru natolik s respektem, že nejdeme hodit na druhého vlastní problémy, ale chceme je vyřešit prostřednictvím terapie, masáže či rituálu._
-
-Více na www.baranyja.eu
-
-www.selafee.cz
