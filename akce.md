@@ -1,22 +1,20 @@
 ---
 layout: page
-title: Ostatní služby
+title: Masáže,terapie
 
 ---
-**_K ostatním službám jako jsou masáže a harmonizace zvukem, workshopy aj, navštivte prosím www.baranyja.eu_**
 
-_Od Září 2022 bude kurz pro začátečníky - pouze pro nové zájemce._
+#### _Nabízím Vám, z dlouholeté praxe a kurzů masáží:_
 
-_Od Září nás čeká nový běh lekcí, o kterém budu informovat zde včas. Kurz čtvrteční lekce běží stále dál v 16:15, přes léto si dáváme pauzičku a od Září jedeme dál:)_
+* Aromaterapeutická olejová masáž
 
-_Přeji krásný začátek léta!_
 
-_Děkuji za důvěru_
+* Rekondiční masáž celého těla
 
-_Bára_
+### Terapie
 
-![](/uploads/63e96ef7ce14c16435f772e8735c74d8.jpg)
+* Hlubinná energetická terapie při dlouhodobých obtížích s kterými si neví běžná medicína, všeho druhu fyzických obtíží , tak psychických.
 
-**_Více mých služeb hledejte prosím zde : www.baranyja.eu_**
+Při terapii hledáme příčinu jak na fyzické úrovni tak v regresivních vazbách.
 
-**_E- shop s aromaterapií : www.selafee.cz_**
+_(Nepřijímám klienty na terapie v rámci mluveného slova o vztazích, rodinných problémech aj. Prosím objednejte se pro tato témata k odbornému psychologovi.)_
