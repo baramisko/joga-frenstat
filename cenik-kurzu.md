@@ -3,12 +3,9 @@ title: O lektorce
 layout: page
 
 ---
+Jmenuji se Barbora
 
-Jmenuji se Bára
-
-![](/uploads/img_20211223_093913_290.jpg)
-
-_Přála bych si, abyste u mne nalezli to , co vyzařuje mé srdce, ostatní slova jsou zbytečná....._
+_Přála bych si, abyste u mne nalezli to , co vyzařuje mé srdce a co s láskou předávám dál._
 
 _Intenzivně jóguji a věnuji se józe od roku 2014_
 
@@ -36,7 +33,7 @@ _Bude mi ctí s Vámi projít cestu k poznání sebe, v mužském i ženském as
 
 _Neustálá praxe, studium a touha po lepším životě pro sebe i ostatní je mým pilířem jógy, je to cesta, díky které jsem si uvědomila své tělo, svou podstatu mysli, své nároky._
 
-_Momentálně se věnuji spíše prapůvodní józe, tantra józe, meditaci v pohybu a naslouchání svého těla, odráží se to i v hloubce lekcí, oba směry zdokonaluji praxí samotnou tak pod vedením učitelů._
+_Momentálně se věnuji spíše prapůvodní józe, rekondiční józe, meditaci v pohybu a naslouchání svého těla, odráží se to i v hloubce lekcí, oba směry zdokonaluji praxí samotnou tak pod vedením učitelů._
 
 _Vzdělání se v oboru neberu skokově dle kurzů ale především celoživotně a komplexně. Jestliže jsem absolvovala kurz Hatha Yoga,neznamená to nutně,že jsem lektorem Hatha Yoga, velice si vážím sebevzdělání a nespím na vavřínech :)_
 
@@ -66,4 +63,4 @@ _Ayurvédská masáž a techniky - škola Ayurvédy Dr.Mazala, Krkonoše_
 
 _Meditace a fasciální yoga,rituály,Spinal Yoga - Dambar Pan, Nepál 1 měsíc intenzivně_
 
-_K citlivosti pro komunikaci a neodsuzování jakéhokoliv problému tělesné roviny či duševní mi částečně pomohlo studium Sociálních věd a psychologie v Ostravě, z kurzů po studiích jsem absolvovala např. Psychosomatické potíže a úzkosti,problematika drogově závislých, poruchy příjmu potravy aj._ 
+_K citlivosti pro komunikaci a neodsuzování jakéhokoliv problému tělesné roviny či duševní mi částečně pomohlo studium Sociálních věd a psychologie v Ostravě, z kurzů po studiích jsem absolvovala např. Psychosomatické potíže a úzkosti,problematika drogově závislých, poruchy příjmu potravy aj._
