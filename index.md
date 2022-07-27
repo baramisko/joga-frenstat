@@ -3,13 +3,6 @@ layout: page
 title: Vítejte
 
 ---
-Aktuálně:
-
-Jógový a meditační pobyt v Srpnu je zde:
-
-[https://docs.google.com/document/d/1XUiLzmU_3qll1WV-rksKUUjOm612UkABx0YB90NjNp0/edit?usp=sharing](https://docs.google.com/document/d/1XUiLzmU_3qll1WV-rksKUUjOm612UkABx0YB90NjNp0/edit?usp=sharing "https://docs.google.com/document/d/1XUiLzmU_3qll1WV-rksKUUjOm612UkABx0YB90NjNp0/edit?usp=sharing")
-
-_Děkuji a těším se na setkání, Bára_
 
 ![](/uploads/IMG_20190730_104235_826-1.jpg)
 
