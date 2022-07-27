@@ -11,8 +11,6 @@ _Intenzivně jóguji a věnuji se józe od roku 2014_
 
 ![](/uploads/img_20220127_154326_900.jpg)
 
-![](/uploads/img_20210421_102053.jpg)
-
 _Celý život kroužím okolo vůní, energií, péče o těla a ducha a tak jsem po letech v sociálních službách, práce s dětmi, lidmi, se závislými na různých vnějších vjemů opustila instituty a vrhla se do vlastního světa._
 
 _Světa masáží_
