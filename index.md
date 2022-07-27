@@ -3,6 +3,8 @@ layout: page
 title: Vítejte
 
 ---
+**Pozor změna mailu! jediný funkční mail je barbora.gardelkova@seznam.cz**
+
 _Namasté příteli, vítej a děkuji za důvěru_
 
 ![](/uploads/IMG_20190730_104235_826-1.jpg)
