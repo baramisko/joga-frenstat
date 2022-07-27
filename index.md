@@ -3,6 +3,7 @@ layout: page
 title: Vítejte
 
 ---
+_Namasté příteli, vítej a děkuji za důvěru_
 
 ![](/uploads/IMG_20190730_104235_826-1.jpg)
 
