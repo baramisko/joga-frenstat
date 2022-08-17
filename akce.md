@@ -13,6 +13,7 @@ title: Masáže,terapie
 * Hlubinná energetická terapie při dlouhodobých obtížích s kterými si neví běžná medicína, všeho druhu fyzických obtíží , tak psychických.
 
   _(Nepřijímám klienty na terapie v rámci mluveného slova o vztazích, rodinných problémech aj. Prosím objednejte se pro tato témata k odbornému psychologovi.)_
+* Terapie a její průběh je zcela individuální - byliny, práce s energií, emocemi, tělem, regrese....
 
 Při terapii hledáme příčinu jak na fyzické úrovni tak v regresivních vazbách.
 
