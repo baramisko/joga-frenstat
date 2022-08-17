@@ -5,7 +5,13 @@ layout: page
 ---
 **_Aktuálně 2022: _**
 
-![](/uploads/page0001-1.jpg)
+Více informací ohledně lekcí od Září mailem prosím.
+
+Pondělí 18:30
+
+Čtvrtek 16:15
+
+domluvíme se, jestli je kurz vhodný právě pro Vás a jaké máte očekávání od mých lekcí, nejsem totiž jen cvičitelka, ale srdcem jogínka a proto si přeji, aby byly obě strany spokojeny!
 
 Přeji krásný start léta!
 
