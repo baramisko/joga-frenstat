@@ -3,6 +3,8 @@ title: O lektorce
 layout: page
 
 ---
+**_Navštivte můj nádherný E shop s aromaterapií zde : www.selafee.cz_**
+
 Jmenuji se Barbora
 
 _Přála bych si, abyste u mne nalezli to , co vyzařuje mé srdce a co s láskou předávám dál._
