@@ -14,6 +14,7 @@ title: Masáže,terapie
 
   _(Nepřijímám klienty na terapie v rámci mluveného slova o vztazích, rodinných problémech aj. Prosím objednejte se pro tato témata k odbornému psychologovi.)_
 * Terapie a její průběh je zcela individuální - byliny, práce s energií, emocemi, tělem, regrese....
+* Očista ducha, aury a navrácení se k sobě
 
 Při terapii hledáme příčinu jak na fyzické úrovni tak v regresivních vazbách.
 
