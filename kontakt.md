@@ -17,7 +17,7 @@ Na jógu s Bárou jsem narazila čistě náhodou prostřednictvím sociálních 
 
 ### Jak se objednat?
 
-emailem na Bara.Nyja@seznam.cz  
+emailem na barbora.gardelkova@seznam.cz  
 nebo telefonicky na 608 350 759, klidně i smskou
 
 ### Kde mě najdete?
