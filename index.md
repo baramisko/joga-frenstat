@@ -3,7 +3,12 @@ layout: page
 title: Vítejte
 
 ---
-**Pozor změna mailu! jediný funkční mail je barbora.gardelkova@seznam.cz**
+Pozor změna mailu! jediný funkční mail je barbora.gardelkova@seznam.cz
+
+**Aktuálně nás čeká:**
+
+**_23.9. v pátek od 17:30, na nádherný den plný rovnodennosti_**  
+![](/uploads/meditace-zvukem-page0001.jpg)
 
 _Namasté příteli, vítej a děkuji za důvěru_
 
