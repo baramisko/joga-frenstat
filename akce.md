@@ -1,14 +1,20 @@
 ---
 layout: page
-title: Masáže,terapie
+title: Ostatní služby
 
 ---
+#### _Harmonizace zvukem pro skupiny i jednotlivce:_
+
+Vlastním sadu **čakrových křišťálových mís a jiných hudebních nástrojů,** jejich frekvence dokáže uvolnit jak tělo , tak mysl a pracuje na jemnohmotné úrovni se stresem. Pokud máte zájem pro hraní pro skupinu nebo jako dárek, neváhejte se na mne obrátit. Domluvíme individuální prostor pro harmonizaci.
+
+![](/uploads/screenshot_2022-04-09-08-31-00-72_99c04817c0de5652397fc8b56c3b3817.jpg)
+
 #### _Nabízím Vám, z dlouholeté praxe a kurzů masáží:_
 
 * Aromaterapeutická olejová masáž
 * Rekondiční masáž celého těla
 
-### Terapie
+#### Terapie
 
 * Hlubinná energetická terapie při dlouhodobých obtížích s kterými si neví běžná medicína, všeho druhu fyzických obtíží , tak psychických.
 
@@ -18,6 +24,8 @@ title: Masáže,terapie
 
 Při terapii hledáme příčinu jak na fyzické úrovni tak v regresivních vazbách.
 
-**Harmonizace zvukem pro skupiny i jednotlivce:**
+#### Aromaterapie
 
-Vlastním sadu **čakrových křišťálových mís a jiných hudebních nástrojů,** jejich frekvence dokáže uvolnit jak tělo , tak mysl a pracuje na jemnohmotné úrovni se stresem. Pokud máte zájem pro hraní pro skupinu nebo jako dárek, neváhejte se na mne obrátit. Domluvíme individuální prostor pro harmonizaci.
+* Věnuji se aromateraii na míru. Pro více info www.selafee.cz
+
+![](/uploads/275375680_5620571014639976_7719038310409299580_n.jpg)
