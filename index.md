@@ -3,11 +3,13 @@ layout: page
 title: Vítejte
 
 ---
-Pozor změna mailu! jediný funkční mail je barbora.gardelkova@seznam.cz
+Pozor změna mailu! jediný funkční mail je barbora.gardelkova@seznam.cz, děkuji 
 
 **Aktuálně nás čeká:**
 
-**_23.9. v pátek od 17:30, na nádherný den plný rovnodennosti_**  
+**_23.9. v pátek od 17:30, na nádherný den plný rovnodennosti._**
+
+Cena upravena na 220,- aby se mohli dostavit všichni, kteří chtějí zharmonizovat duši, tělo a mysl!  
 ![](/uploads/meditace-zvukem-page0001.jpg)
 
 Pobyt v Listopadu v horách, jógový a meditační pobyt :
