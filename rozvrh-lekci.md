@@ -13,7 +13,7 @@ Pondělí 18:30 - Plně obsazeno
 
 domluvíme se, jestli je kurz vhodný právě pro Vás a jaké máte očekávání od mých lekcí, nejsem totiž jen cvičitelka, ale srdcem jogínka a proto si přeji, aby byly obě strany spokojeny!
 
-Přeji krásný start léta!
+Přeji krásný start podzimního času!
 
 Subham astu Sarvadžagatam  
 Bára
