@@ -9,7 +9,7 @@ Kurz měsíčně - **_180,-_** _Kč **x počet dní** v měsíci daného kurzu_
 
 _Individuální lekce jógy na míru **890,-** Kč_
 
-_Pro studenty a rodiče na MD sleva po dohodě_
+_Pro studenty a rodiče na MD sleva po dohodě 130, - /150,-_
 
 **Aromaterapeutická masáž**
 
