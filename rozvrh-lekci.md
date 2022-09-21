@@ -5,7 +5,31 @@ layout: page
 ---
 **_Aktuálně 2022: _**
 
-Více informací ohledně lekcí od Září mailem prosím.
+_Lekce dopolední a polední jógy ve Frenštátě pod Radhoštěm_
+
+_Dopolední čas, může být vhodný pro Váš start a zklidnění dne, naladění se na povinnosti a rozpohybování těla po náročné práci nebo jako rodič na plný úvazek._
+
+_Lekce jsou otevřené a vhodné pro začátečníky, mírně pokročilé, ale i ostřílené sportovce._
+
+_Dopolední lekce bude probíhat v čase od 10:30 / 70 ´_
+
+_Polední lekce bude probíhat v čase 12:00 / 60´_
+
+_Každou středu v Kyčeře, na ochozu oproti obuvi. Rezervace je nutná předem a minimální počet účastníků jsou 4._
+
+Rezervační systém pro dopolední lekci : [https://www.supersaas.cz/schedule/lekcejogy/Dopoledn%C3%AD_lekce](https://www.supersaas.cz/schedule/lekcejogy/Dopoledn%C3%AD_lekce "https://www.supersaas.cz/schedule/lekcejogy/Dopoledn%C3%AD_lekce")
+
+Rezervační systém pro polední lekci :
+
+[https://www.supersaas.cz/schedule/lekcejogy/Poledn%C3%AD_lekce](https://www.supersaas.cz/schedule/lekcejogy/Poledn%C3%AD_lekce "https://www.supersaas.cz/schedule/lekcejogy/Poledn%C3%AD_lekce")
+
+_Cena za lekci je 150,-._
+
+_608 350 759 i sms_
+
+_Začínáme **19.10.,** rezervujte si své místo na lekci včas!_
+
+_Těšit se na Vás bude lektorka Bára_
 
 Pondělí 18:30 - Plně obsazeno
 
