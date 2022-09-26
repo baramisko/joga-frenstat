@@ -7,7 +7,7 @@ title: Ostatní služby
 
 Vlastním sadu **čakrových křišťálových mís a jiných hudebních nástrojů,** jejich frekvence dokáže uvolnit jak tělo , tak mysl a pracuje na jemnohmotné úrovni se stresem. Pokud máte zájem pro hraní pro skupinu nebo jako dárek, neváhejte se na mne obrátit. Domluvíme individuální prostor pro harmonizaci.
 
-![](/uploads/screenshot_2022-04-09-08-31-00-72_99c04817c0de5652397fc8b56c3b3817.jpg)
+![](/uploads/img20220923155209.jpg)
 
 #### _Nabízím Vám, z dlouholeté praxe a kurzů masáží:_
 
