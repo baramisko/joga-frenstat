@@ -7,6 +7,12 @@ Pozor změna mailu! jediný funkční mail je barbora.gardelkova@seznam.cz, děk
 
 **Aktuálně nás čeká:**
 
+Pobyt v Listopadu v horách, jógový a meditační pobyt :
+
+[https://docs.google.com/document/d/1uuCp5LlBjAlAXs29-YV7WlfTS1r-Cw6s-l8erwDTdyk/edit?usp=sharing](https://docs.google.com/document/d/1uuCp5LlBjAlAXs29-YV7WlfTS1r-Cw6s-l8erwDTdyk/edit?usp=sharing "https://docs.google.com/document/d/1uuCp5LlBjAlAXs29-YV7WlfTS1r-Cw6s-l8erwDTdyk/edit?usp=sharing")
+
+**Již proběhlo:**
+
 **Kapacita je naplněna, příští termín bude opět zde, děkuji!**
 
 _23.9. v pátek od 17:30, na nádherný den plný rovnodennosti. Poslední volná místa._
