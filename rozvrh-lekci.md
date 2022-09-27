@@ -9,7 +9,7 @@ layout: page
 
 **_Čtvrtek 16:15 - Místo na dotaz_**
 
-**_Kurz jógy pro pokročilé - spiritual jóga_**  
+**_Kurz jógy pro pokročilé - spiritual jóga  -_** _kurz určen pro zájemce o širší spektrum jógy, o introspekci do nitra. Probíhat bude jednou měsíčně , dle zájmu a prostoru dvakrát ( vždy v pátek večer ) , na cca dvě hodiny, kdy budeme mít v menší skupince čas a prostor pro korekci ásán, pranajámy, probrání duchovní cesty. Více informací podám mailem._
 
 **_Dopolední lekce bude probíhat v čase od 10:30 / 70 ´_**
 
