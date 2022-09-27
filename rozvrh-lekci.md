@@ -3,11 +3,13 @@ title: Kurzy Jógy
 layout: page
 
 ---
-**_Aktuálně 2022: _**
+**Aktuálně 2022:** 
 
-**Pondělí 18:30 - Plně obsazeno**
+**_Pondělí 18:30 - Plně obsazeno_**
 
-**Čtvrtek 16:15 - Místo na dotaz**
+**_Čtvrtek 16:15 - Místo na dotaz_**
+
+**_Kurz jógy pro pokročilé - spiritual jóga_** 
 
 _Lekce dopolední a polední jógy ve Frenštátě pod Radhoštěm_
 
