@@ -5,15 +5,19 @@ layout: page
 ---
 **_Aktuálně 2022: _**
 
+**Pondělí 18:30 - Plně obsazeno**
+
+**Čtvrtek 16:15 - Místo na dotaz**
+
 _Lekce dopolední a polední jógy ve Frenštátě pod Radhoštěm_
 
 _Dopolední čas, může být vhodný pro Váš start a zklidnění dne, naladění se na povinnosti a rozpohybování těla po náročné práci nebo jako rodič na plný úvazek._
 
 _Lekce jsou otevřené a vhodné pro začátečníky, mírně pokročilé, ale i ostřílené sportovce._
 
-_Dopolední lekce bude probíhat v čase od 10:30 / 70 ´_
+**_Dopolední lekce bude probíhat v čase od 10:30 / 70 ´_**
 
-_Polední lekce bude probíhat v čase 12:00 / 60´_
+**_Polední lekce bude probíhat v čase 12:00 / 60´_**
 
 _Každou středu v Kyčeře, na ochozu oproti obuvi. Rezervace je nutná předem a minimální počet účastníků jsou 4._
 
@@ -31,9 +35,9 @@ _Začínáme **19.10.,** rezervujte si své místo na lekci včas!_
 
 _Těšit se na Vás bude lektorka Bára_
 
-Pondělí 18:30 - Plně obsazeno
+**Pondělí 18:30 - Plně obsazeno**
 
-Čtvrtek 16:15 - Místo na dotaz
+**Čtvrtek 16:15 - Místo na dotaz**
 
 domluvíme se, jestli je kurz vhodný právě pro Vás a jaké máte očekávání od mých lekcí, nejsem totiž jen cvičitelka, ale srdcem jogínka a proto si přeji, aby byly obě strany spokojeny!
 
