@@ -3,11 +3,11 @@ title: Kurzy Jógy
 layout: page
 
 ---
-### **Aktuálně 2022:** 
+### **Aktuálně 2022:**
 
 **_Pondělí 18:30 - Plně obsazeno_**
 
-**_Čtvrtek 16:15 - Místo na dotaz_**
+**_Čtvrtek 16:15 - Plně obsazeno_**
 
 **_Kurz jógy pro pokročilé - spiritual jóga  -_** _kurz určen pro zájemce o širší spektrum jógy, o introspekci do nitra. Probíhat bude jednou měsíčně , dle zájmu a prostoru dvakrát ( vždy v pátek večer ) , na cca dvě hodiny, kdy budeme mít v menší skupince čas a prostor pro korekci ásán, pranajámy, probrání duchovní cesty. Více informací podám mailem._
 
