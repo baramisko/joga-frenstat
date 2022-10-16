@@ -13,7 +13,7 @@ _Pro studenty a rodiče na MD sleva po dohodě 130, - /150,-_
 
 **Aromaterapeutická masáž**
 
-80´ **1100**,- , ( _zahrnuje i vlastní esenci pokud člověk zrovna řeší psychický či fyzický problém na míru_ )
+80´ **1100**,- 
 
 **Rekondiční masáž celého těla**
 
