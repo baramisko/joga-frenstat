@@ -17,11 +17,9 @@ Subham astu Sarvadžagatam
 
 **_Dopolední lekce bude probíhat v čase od 10:30 / 70 ´_**
 
-_Každou středu v Kyčeře, na ochozu oproti obuvi. Rezervace je nutná předem a minimální počet účastníků jsou 4._
+_Každou středu v Kyčeře, na ochozu oproti obuvi. Rezervace je nutná předem a **minimální počet účastníků jsou 4.**_
 
 Rezervační systém pro dopolední lekci : [https://www.supersaas.cz/schedule/lekcejogy/Dopoledn%C3%AD_lekce](https://www.supersaas.cz/schedule/lekcejogy/Dopoledn%C3%AD_lekce "https://www.supersaas.cz/schedule/lekcejogy/Dopoledn%C3%AD_lekce")
-
-_Lekce dopolední  jógy ve Frenštátě pod Radhoštěm_
 
 _Dopolední čas, může být vhodný pro Váš start a zklidnění dne, naladění se na povinnosti a rozpohybování těla po náročné práci nebo jako rodič na plný úvazek._
 
