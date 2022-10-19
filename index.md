@@ -19,8 +19,6 @@ Pobyt v Listopadu v horách, jógový a meditační pobyt :
 
 **Termín kurzu Aromaterapie bude upřesněn - konec Října, začátek Listopadu**
 
-![](/uploads/aromaterapie-v-page0001.jpg)
-
 **Již proběhlo:**
 
 **Kapacita je naplněna, příští termín bude opět zde, děkuji!**
