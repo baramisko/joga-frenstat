@@ -21,6 +21,8 @@ _Každou středu v Kyčeře, na ochozu oproti obuvi. Rezervace je nutná předem
 
 Rezervační systém pro dopolední lekci : [https://www.supersaas.cz/schedule/lekcejogy/Dopoledn%C3%AD_lekce](https://www.supersaas.cz/schedule/lekcejogy/Dopoledn%C3%AD_lekce "https://www.supersaas.cz/schedule/lekcejogy/Dopoledn%C3%AD_lekce")
 
+**_Je nutné se odhlašovat pouze SMS! Pokud je méně než 4 účastníci lekce se nekoná, děkuji za pochopení_**
+
 _Dopolední čas, může být vhodný pro Váš start a zklidnění dne, naladění se na povinnosti a rozpohybování těla po náročné práci nebo jako rodič na plný úvazek._
 
 _Lekce jsou otevřené a vhodné pro začátečníky, mírně pokročilé, ale i ostřílené sportovce._
