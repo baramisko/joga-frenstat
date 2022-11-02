@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Ostatní služby
+title: Mé další služby
 
 ---
 #### _Harmonizace zvukem pro skupiny i jednotlivce:_
