@@ -26,7 +26,3 @@ Pobyt v Listopadu v horách, jógový a meditační pobyt :
 _23.9. v pátek od 17:30, na nádherný den plný rovnodennosti. Poslední volná místa._
 
 ![](/uploads/meditace-zvukem-page0001mail.jpg)
-
-Pobyt v Listopadu v horách, jógový a meditační pobyt :
-
-[https://docs.google.com/document/d/1uuCp5LlBjAlAXs29-YV7WlfTS1r-Cw6s-l8erwDTdyk/edit?usp=sharing](https://docs.google.com/document/d/1uuCp5LlBjAlAXs29-YV7WlfTS1r-Cw6s-l8erwDTdyk/edit?usp=sharing "https://docs.google.com/document/d/1uuCp5LlBjAlAXs29-YV7WlfTS1r-Cw6s-l8erwDTdyk/edit?usp=sharing")
