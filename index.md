@@ -13,13 +13,15 @@ _Jóga navrací ke kořenům, je to cesta, která nám ukazuje naše vnitřní J
 
 **Aktuálně nás čeká:**
 
-Pobyt v Listopadu v horách, jógový a meditační pobyt :
-
-[https://docs.google.com/document/d/1uuCp5LlBjAlAXs29-YV7WlfTS1r-Cw6s-l8erwDTdyk/edit?usp=sharing](https://docs.google.com/document/d/1uuCp5LlBjAlAXs29-YV7WlfTS1r-Cw6s-l8erwDTdyk/edit?usp=sharing "https://docs.google.com/document/d/1uuCp5LlBjAlAXs29-YV7WlfTS1r-Cw6s-l8erwDTdyk/edit?usp=sharing")
+![](/uploads/harmonizace-a-zvukomeditace-kristalovymi-misami-page0001.jpg)
 
 **Termín kurzu Aromaterapie bude upřesněn - konec Října, začátek Listopadu**
 
 **Již proběhlo:**
+
+Pobyt v Listopadu v horách, jógový a meditační pobyt :
+
+[https://docs.google.com/document/d/1uuCp5LlBjAlAXs29-YV7WlfTS1r-Cw6s-l8erwDTdyk/edit?usp=sharing](https://docs.google.com/document/d/1uuCp5LlBjAlAXs29-YV7WlfTS1r-Cw6s-l8erwDTdyk/edit?usp=sharing "https://docs.google.com/document/d/1uuCp5LlBjAlAXs29-YV7WlfTS1r-Cw6s-l8erwDTdyk/edit?usp=sharing")
 
 **Kapacita je naplněna, příští termín bude opět zde, děkuji!**
 
