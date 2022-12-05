@@ -15,7 +15,7 @@ _Jóga navrací ke kořenům, je to cesta, která nám ukazuje naše vnitřní J
 
 Před- Vánoční prodloužená lekce jógy, pátek 16.12. od 17:15, více info sms nebo mailem, počet míst je omezen, zbývá aktuálně 5 volných míst :)
 
-![](/uploads/yoga-poses-christmas-tree-gymnastic-t-shirt-felix.jpg)
+![](/uploads/vanocni-prodlouzena-lekce-jogy-page0001.jpg)
 
 **Termín kurzu Aromaterapie bude upřesněn - konec Října, začátek Listopadu**
 
