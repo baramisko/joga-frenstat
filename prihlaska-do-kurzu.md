@@ -17,4 +17,4 @@ _Pro studenty a rodiče na MD sleva 140, - /150,- x počet dní v měsíci , neb
 
 **Rekondiční masáž celého těla**
 
-( _zahrnuje reflexní terapii, uvolňovací techniky měkké, rehabilitace lymfy a meridánů, masáž je rovněž velmi uvolňující pro kloubní aparát a svaly, po sportu, porodu aj._) **60´ 850,- Kč , 80 ´ 1000,-**
+( _zahrnuje reflexní terapii, uvolňovací techniky měkké, rehabilitace lymfy a meridánů, masáž je rovněž velmi uvolňující pro kloubní aparát a svaly, po sportu, porodu aj._) **90 ´ 1000,-**
