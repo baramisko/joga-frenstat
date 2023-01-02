@@ -5,9 +5,9 @@ layout: page
 ---
 ### **Aktuálně 2022:**
 
-**_Pondělí 18:30 - Lze se hlásit od nového roku 2023 ( Únor )_**
+**_Pondělí 18:30 - Lze se hlásit od nového roku 2023 ( Únor , tato lekce je pro adepty, kteří mají s jógou již zkušenosti )_**
 
-**_Čtvrtek 16:15 - 4 volná místa_**
+**_Čtvrtek 16:15 - 4 volná místa ( i začátečníci )_**
 
 **_Kurz jógy pro pokročilé - spiritual jóga  -_** _kurz určen pro zájemce o širší spektrum jógy, o introspekci do nitra. Probíhat bude jednou měsíčně , dle zájmu a prostoru dvakrát ( vždy v pátek večer ) , na cca dvě hodiny, kdy budeme mít v menší skupince čas a prostor pro korekci ásán, pranajámy, probrání duchovní cesty. **Více informací podám mailem.**_
 
