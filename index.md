@@ -13,13 +13,11 @@ _Jóga navrací ke kořenům, je to cesta, která nám ukazuje naše vnitřní J
 
 **Aktuálně nás čeká:**
 
-Před- Vánoční prodloužená lekce jógy, pátek 16.12. od 17:15, více info sms nebo mailem, počet míst je omezen, zbývá aktuálně 5 volných míst :)
-
-![](/uploads/vanocni-prodlouzena-lekce-jogy-page0001.jpg)
-
-**Termín kurzu Aromaterapie bude upřesněn - konec Října, začátek Listopadu**
+**_Harmonizace a meditace zvukem, pravidelné setkání proběhne 10.2.2023 od 17 ti hodin. Cena 250,- Kč._**
 
 **Již proběhlo:**
+
+Před- Vánoční prodloužená lekce jógy, pátek 16.12. od 17:15, více info sms nebo mailem, počet míst je omezen, zbývá aktuálně 5 volných míst :)![](/uploads/vanocni-prodlouzena-lekce-jogy-page0001.jpg)
 
 Pobyt v Listopadu v horách, jógový a meditační pobyt :
 
