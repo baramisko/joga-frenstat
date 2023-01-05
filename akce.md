@@ -3,6 +3,10 @@ layout: page
 title: Služby a pobyty
 
 ---
+**_Jógový pobyt v horách 17 - 19.3.2023_**
+
+[https://docs.google.com/document/d/1BPOKJMSLYy7LzVkIBwqeI_h54dUV8vTQzn19M3L9clU/edit?usp=sharing](https://docs.google.com/document/d/1BPOKJMSLYy7LzVkIBwqeI_h54dUV8vTQzn19M3L9clU/edit?usp=sharing "https://docs.google.com/document/d/1BPOKJMSLYy7LzVkIBwqeI_h54dUV8vTQzn19M3L9clU/edit?usp=sharing")
+
 #### _Harmonizace zvukem pro skupiny i jednotlivce:_
 
 Vlastním sadu **čakrových křišťálových mís a jiných hudebních nástrojů,** jejich frekvence dokáže uvolnit jak tělo , tak mysl a pracuje na jemnohmotné úrovni se stresem. Pokud máte zájem pro hraní pro skupinu nebo jako dárek, neváhejte se na mne obrátit. Domluvíme individuální prostor pro harmonizaci.
