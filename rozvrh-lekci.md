@@ -5,7 +5,7 @@ layout: page
 ---
 ### **Aktuálně 2022:**
 
-**_Pondělí 18:30 - Lze se hlásit od nového roku 2023 ( Únor , tato lekce je pro adepty, kteří mají s jógou již zkušenosti )_**
+**_Pondělí 18:30 - Lze se hlásit od nového roku 2023, 4 volná místa , tato lekce je pro adepty, kteří mají s jógou již zkušenosti_** 
 
 **_Čtvrtek 16:15 - 4 volná místa ( i začátečníci )_**
 
