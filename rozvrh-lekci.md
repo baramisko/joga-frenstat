@@ -3,7 +3,9 @@ title: Kurzy Jógy
 layout: page
 
 ---
-### **Aktuálně 2022:**
+### **Aktuálně 2023:**
+
+Tyto lekce jsou vedeny jako ucelený kurz, proto je vhodné , aby se hlásili zájemci, kteří mají zájem chodit pravidelně a nenarušovali tak průběh lekcí během roku.
 
 **_Pondělí 18:30 - Lze se hlásit od nového roku 2023, 4 volná místa , tato lekce je pro adepty, kteří mají s jógou již zkušenosti_** 
 
