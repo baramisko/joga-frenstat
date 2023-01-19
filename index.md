@@ -13,9 +13,7 @@ _Jóga navrací ke kořenům, je to cesta, která nám ukazuje naše vnitřní J
 
 **Aktuálně nás čeká:**
 
-**_Harmonizace a meditace zvukem, pravidelné setkání proběhne 10.2.2023 od 17 ti hodin. Cena 250,- Kč._**
-
-![](/uploads/img20220923180854.jpg)
+![](/uploads/page0001-2.jpg)
 
 Jógový pobyt 17 - 19.3.2023:
 
