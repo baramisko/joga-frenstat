@@ -34,4 +34,4 @@ Při terapii hledáme příčinu jak na fyzické úrovni tak v regresivních vaz
 
 * Věnuji se aromateraii na míru. Pro více info www.selafee.cz
 
-![](/uploads/275375680_5620571014639976_7719038310409299580_n.jpg)
+#### _Ženské kruhy, rituály a setkání na míru, kurzy jógy pro skupiny_
