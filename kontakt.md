@@ -3,7 +3,6 @@ layout: page
 title: Recenze a kontakt
 
 ---
-**_E-shop s aromaterapií: www.selafee.cz_**
 
 Pár milých slov ,spokojených klientů jógy a masáží...
 
