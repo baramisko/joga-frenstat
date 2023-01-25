@@ -17,7 +17,7 @@ _Jóga navrací ke kořenům, je to cesta, která nám ukazuje naše vnitřní J
 
 Jógový pobyt 17 - 19.3.2023:
 
-[https://docs.google.com/document/d/1BPOKJMSLYy7LzVkIBwqeI_h54dUV8vTQzn19M3L9clU/edit?usp=sharing](https://docs.google.com/document/d/1BPOKJMSLYy7LzVkIBwqeI_h54dUV8vTQzn19M3L9clU/edit?usp=sharing "https://docs.google.com/document/d/1BPOKJMSLYy7LzVkIBwqeI_h54dUV8vTQzn19M3L9clU/edit?usp=sharing")
+[https://docs.google.com/document/d/1BPOKJMSLYy7LzVkIBwqeI_h54dUV8vTQzn19M3L9clU/edit?usp=sharing](https://docs.google.com/document/d/1BPOKJMSLYy7LzVkIBwqeI_h54dUV8vTQzn19M3L9clU/edit?usp=sharing "https://docs.google.com/document/d/1BPOKJMSLYy7LzVkIBwqeI_h54dUV8vTQzn19M3L9clU/edit?usp=sharing") poslední volný pokoj
 
 **Již proběhlo:**
 
