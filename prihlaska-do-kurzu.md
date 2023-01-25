@@ -7,7 +7,7 @@ Lekce jógy - _jednorázově tzn. nejste v kurzu **200,** -Kč_
 
 Kurz měsíčně - **_180,-_**  _Kč **x počet dní** v měsíci daném kurzu/ vždy se platí dopředu s možností náhrady kdykoli v roce v jiném dni_
 
-_Individuální lekce jógy na míru **950,-** Kč_
+_Individuální lekce jógy na míru, včetně relaxace nebo meditace 75´ **1000,-** Kč_
 
 **Aromaterapeutická masáž**
 
