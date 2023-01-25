@@ -22,3 +22,7 @@ _Individuální lekce jógy na míru **950,-** Kč_
 _Více v , mé další služby ,_
 
 _První hodina 1000,- Kč , každá další půlhodina 200,-_
+
+**Ženské kruhy, kurzy, rituály na míru - informace mailem**
+
+cena podle počtu uchazečů od 2000,- do 6000,-
