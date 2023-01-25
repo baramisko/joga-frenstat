@@ -3,21 +3,19 @@ title: Ceník
 layout: page
 
 ---
-Lekce jógy - _jednorázově tzn. nejste v kurzu **220,** -Kč_
+Lekce jógy - _jednorázově tzn. nejste v kurzu **200,** -Kč_
 
-Kurz měsíčně - **_180,-_**  _Kč **x počet dní** v měsíci daném kurzu_
+Kurz měsíčně - **_180,-_**  _Kč **x počet dní** v měsíci daném kurzu/ vždy se platí dopředu s možností náhrady kdykoli v roce v jiném dni_
 
 _Individuální lekce jógy na míru **950,-** Kč_
 
-_Pro studenty a rodiče na MD sleva 140, 150 x počet dní v měsíci , nebo 200,-200,- 140, 150 x počet dní v měsíci , nebo 200,-200, při nepravidelné docházce_
-
 **Aromaterapeutická masáž**
 
-80´ **1100** ,-
+90´ **1200** ,-
 
 **Rekondiční masáž celého těla**
 
-( _zahrnuje reflexní terapii, uvolňovací techniky měkké, rehabilitace lymfy a meridánů, masáž je rovněž velmi uvolňující pro kloubní aparát a svaly, po sportu, porodu aj._ ) **90 ´ 1000,-**
+( _zahrnuje reflexní terapii, uvolňovací techniky měkké, rehabilitace lymfy a meridánů, masáž je rovněž velmi uvolňující pro kloubní aparát a svaly, po sportu, porodu aj._ ) **90 ´ 1200,-**
 
 ##### **_Terapie_**
 
