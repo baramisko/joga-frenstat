@@ -7,7 +7,7 @@ title: Služby a pobyty
 
 [https://docs.google.com/document/d/1BPOKJMSLYy7LzVkIBwqeI_h54dUV8vTQzn19M3L9clU/edit?usp=sharing](https://docs.google.com/document/d/1BPOKJMSLYy7LzVkIBwqeI_h54dUV8vTQzn19M3L9clU/edit?usp=sharing "https://docs.google.com/document/d/1BPOKJMSLYy7LzVkIBwqeI_h54dUV8vTQzn19M3L9clU/edit?usp=sharing") aktuálně je poslední pokoj k dispozici
 
-Harmonizace zvukem bude 10.2.2023 v prostorách jógovny , počet míst obsazen, volná místa **7**
+Harmonizace zvukem bude 10.2.2023 v prostorách jógovny , počet míst obsazen, volná místa **3**
 
 ![](/uploads/page0001-2.jpg)
 
