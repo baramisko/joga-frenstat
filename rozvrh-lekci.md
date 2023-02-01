@@ -13,8 +13,6 @@ Tyto lekce jsou vedeny jako ucelený kurz, proto je vhodný , aby se ohlásili z
 
 ### Čeká nás kurz asthanga jógy - Duben 2023  - úterý nebo středa, čas i den bude upřesněn na konci měsíce února
 
-**_Kurzy jógy pro pokročilé - spirituální jóga -_**  _kurz určen pro zájemce o širší spektrum jógy, o introspekci do nitra. Probíhat bude jednou měsíčně , dle zájmu a prostoru dvakrát ( vždy v pátek večer ) , na cca dvě hodiny, kdy budeme mít v menší skupince čas a prostor pro korekci ásán, pranajámy, probrání duchovní cesty. **Více informací podám mailem.**_
-
 domluvíme se, jestli je kurz vhodný právě pro Vás a jaké máte očekávání od mých lekcí, nejsem totiž jen cvičitelka, ale srdcem jogínka a proto si přeji, aby byly obě strany spokojeny!
 
 Subham astu Sarvadžagatam
