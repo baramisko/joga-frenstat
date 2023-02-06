@@ -13,8 +13,6 @@ _Individuální lekce jógy na míru, včetně relaxace nebo meditace 75´ **100
 
 90´ **1200** ,-
 
-**E- shop s aromaterapií na míru  www.selafee.cz**
-
 **Rekondiční masáž celého těla**
 
 ( _zahrnuje reflexní terapii, uvolňovací techniky měkké, rehabilitace lymfy a meridánů, masáž je rovněž velmi uvolňující pro kloubní aparát a svaly, po sportu, porodu aj._ ) **90 ´ 1200,-**
