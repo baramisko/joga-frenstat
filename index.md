@@ -13,13 +13,13 @@ _Jóga navrací ke kořenům, je to cesta, která nám ukazuje naše vnitřní J
 
 **Aktuálně nás čeká:**
 
-![](/uploads/page0001-2.jpg)
+### **Jógový pobyt 17 - 19.3.2023:**
 
-Jógový pobyt 17 - 19.3.2023:
-
-[https://docs.google.com/document/d/1BPOKJMSLYy7LzVkIBwqeI_h54dUV8vTQzn19M3L9clU/edit?usp=sharing](https://docs.google.com/document/d/1BPOKJMSLYy7LzVkIBwqeI_h54dUV8vTQzn19M3L9clU/edit?usp=sharing "https://docs.google.com/document/d/1BPOKJMSLYy7LzVkIBwqeI_h54dUV8vTQzn19M3L9clU/edit?usp=sharing") poslední volný pokoj
+[https://docs.google.com/document/d/1BPOKJMSLYy7LzVkIBwqeI_h54dUV8vTQzn19M3L9clU/edit?usp=sharing](https://docs.google.com/document/d/1BPOKJMSLYy7LzVkIBwqeI_h54dUV8vTQzn19M3L9clU/edit?usp=sharing "https://docs.google.com/document/d/1BPOKJMSLYy7LzVkIBwqeI_h54dUV8vTQzn19M3L9clU/edit?usp=sharing") poslední volný pokoj 
 
 **Již proběhlo:**
+
+![](/uploads/page0001-2.jpg)
 
 Před- Vánoční prodloužená lekce jógy, pátek 16.12. od 17:15, více info sms nebo mailem, počet míst je omezen, zbývá aktuálně 5 volných míst :)![](/uploads/vanocni-prodlouzena-lekce-jogy-page0001.jpg)
 
