@@ -5,6 +5,8 @@ layout: page
 ---
 ### **Aktuálně 2023:**
 
+_9 volných míst na tuto lekci_
+
 ![](/uploads/page0001-3.jpg)
 
 **_Pondělí 18:30 - Lze se hlásit od nového roku 2023, 4 volná místa , tato lekce je pro adepty, kteří mají s jógou již zkušenosti_**
