@@ -5,7 +5,7 @@ layout: page
 ---
 ### **Aktuálně 2023:**
 
-_8 volných míst na tento kurz, 13 lekcí/ cena 2400,- /75 ´_
+_8 volných míst z 12ti na tento kurz, 13 lekcí/ cena 2400,- /75 ´_
 
 ![](/uploads/ahtanga-yoga.png)
 
