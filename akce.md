@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Kurzy a pobyty
+title: Služby a pobyty
 
 ---
 **_Jógový pobyt v horách 17 - 19.3.2023_**
