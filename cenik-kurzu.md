@@ -51,7 +51,7 @@ _Mým každodenním chlebem v józe je cesta Patanjalího a jógasuter, které m
 
 _Pokud Vám to přece jen nedá a chcete vědět, co jsem studovala či který kurz mám hotov tak prosím :_
 
-_Asthanga yoga - Dimitris Dibelo, nadále v učení, vycházím z tradice Sri Pattabhi Joise a B.K.S Iyengara_
+_Ashtanga yoga - Dimitris Dibelo, nadále v učení, vycházím z tradice Sri Pattabhi Joise a B.K.S Iyengara_
 
 _Terapeutická jóga,Bihárska škola, Kriya jóga v aktuálním vzdělávání se -Eva Berkana- Eva je mým mentorem na dále a stále se vzdělávám částečně pod jejím vedením, jejíž cesty a učení si moudře vážím_
 
