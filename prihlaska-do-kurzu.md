@@ -23,7 +23,7 @@ Vycházím z principu svého vzdělání a dalších kurzů v rámci bývalého 
 
  Terapie je velmi individuální, protože esence bytosti je jedinečná, pokaždé pracuji jinak avšak dohromady tvoříme společně Vaši lepší a snašší cestu životem.
 
-Někdy se dostaneme do minulosti, někdy řešíme neplodnost, někdy problémy s dětmi, s astrálním světem, psychospirituální krizí...
+Někdy se dostaneme do minulosti, někdy řešíme neplodnost, někdy problémy s dětmi, s astrálním světem, psychospirituální krizí, poruchy příjmu potravy, ztracení osobnosti, ale i bolesti fyzické, kde ani lékaři nepomáhají, pracuji i se zvířaty i s dětmi.
 
 Pomáhám ve věcech, kterými jsem si sama prošla a sama se vzdělala, pokud si s něčím nebudu vědět rady, přepošlu Vás ráda k jiným kolegům.
 
