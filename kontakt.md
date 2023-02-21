@@ -26,4 +26,4 @@ Kyčera Od, Frenštát pod Radhoštěm, Studio jógy, 2 patro ochoz, naproti obu
 
 IČO: 07388781
 
-![](/uploads/56707539_143663036679650_4799415048910929920_o.jpg)
+![](/uploads/IMG_20190827_111131_544-2.jpg)
