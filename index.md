@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Vítejte
+title: ''
 
 ---
 ![](/uploads/namaste-a-vitej.png)
