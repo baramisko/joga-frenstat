@@ -40,3 +40,5 @@ Objednat si však můžete individuální harmonizaci nebo pro skupinu.
 Individuální cena je 1200,- / hodina
 
 Skupina podle počtu osob po domluvě v rozmezí od 250,- 450,-/ osoba
+
+**Aromaterapie** www.selafee.cz a další služby zde.
