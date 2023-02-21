@@ -17,6 +17,4 @@ domluvíme se, jestli je kurz vhodný právě pro Vás a jaké máte očekáván
 
 Subham astu Sarvadžagatam
 
-_Těšit se na Vás bude lektorka Bára_
-
 ![](/uploads/diwaliposterimage-1.webp)
