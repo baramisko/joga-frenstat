@@ -21,7 +21,7 @@ _zahrnuje reflexní terapii, uvolňovací techniky měkké, rehabilitace lymfy a
 
 Vycházím z principu svého vzdělání a dalších kurzů v rámci bývalého zaměstnání a nalezení nových technik. Terapie probíhá celostně tzn. principem je práce s tělem , duší, rodinnými vazbami a bloky, práce s čakrami , občas aromaterapií a práce s dechem.
 
- Terapie je velmi individuální, protože esence bytosti je jedinečná, pokaždé pracuji jinak avšak dohromady tvoříme společně Vaši lepší a snašší cestu životem.
+ Terapie je velmi individuální, protože esence bytosti je jedinečná, pokaždé pracuji jinak avšak dohromady tvoříme společně Vaši lepší a harmoničtější cestu životem.
 
 Někdy se dostaneme do minulosti, někdy řešíme neplodnost, někdy problémy s dětmi, s astrálním světem, psychospirituální krizí, poruchy příjmu potravy, ztracení osobnosti, ale i bolesti fyzické, kde ani lékaři nepomáhají, pracuji i se zvířaty i s dětmi.
 
