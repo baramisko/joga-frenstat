@@ -29,7 +29,7 @@ Pomáhám ve věcech, kterými jsem si sama prošla a sama se vzdělala, pokud s
 
 Cena terapie je **1000,- Kč** první hodina a čtvrt/ **200,-** každá půl hodina započatá
 
-Jsem velkým zastáncem holotropního dýchání, kterým jsem prošla několikrát i jako terapeut a ráda Vás přepošlu na mou terapeutku, které je velmi profesionální.
+* Jsem velkým zastáncem holotropního dýchání, kterým jsem prošla několikrát i jako terapeut a ráda Vás přepošlu na mou terapeutku, které je velmi profesionální.
 
 **Harmonizace zvukem pro jednotlivce, nebo skupiny**
 
