@@ -33,12 +33,16 @@ Jsem velkým zastáncem holotropního dýchání, kterým jsem prošla několikr
 
 **Harmonizace zvukem pro jednotlivce, nebo skupiny**
 
-Léčivá harmonizace křišťálovými mísami, šamanským bubnem, nebo chřestidlem, koshi zvonečky, jogínské mantry. Pořádám pravidelně setkání. Stačí sledovat web.
+Léčivá harmonizace křišťálovými mísami, šamanským bubnem, nebo chřestidlem, koshi zvonečky, jogínské mantry. 
+
+Pořádám pravidelně setkání. Stačí sledovat web.
 
 Objednat si však můžete individuální harmonizaci nebo pro skupinu. 
 
-Individuální cena je 1200,- / hodina
+Individuální cena je **1200,-** / hodina 
 
-Skupina podle počtu osob po domluvě v rozmezí od 250,- 450,-/ osoba
+Skupina podle počtu osob po domluvě v rozmezí od **250,- 450,-**/ osoba
+
+Rituály na míru, ženské kruhy a skupinové terapie dle domluvy
 
 **Aromaterapie** www.selafee.cz a další služby zde.
