@@ -17,4 +17,14 @@ title: Workshopy a pobyty
 
 ![](/uploads/2.png)
 
-#### 
+#### již proběhlo :
+
+![](/uploads/page0001-2.jpg)
+
+![](/uploads/vanocni-prodlouzena-lekce-jogy-page0001.jpg)
+
+![](/uploads/harmonizace-a-zvukomeditace-kristalovymi-misami-page0001.jpg)
+
+![](/uploads/meditace-zvukem-page0001mail.jpg)
+
+![](/uploads/meditace-zvukem-page0001.jpg)
