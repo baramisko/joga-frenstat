@@ -3,11 +3,8 @@ layout: page
 title: Vítejte
 
 ---
-Pozor změna mailu! jediný funkční mail je barbora.gardelkova@seznam.cz, děkuji
 
-_Namasté příteli, vítej a děkuji za důvěru_
-
-![](/uploads/IMG_20190730_104235_826-1.jpg)
+![](/uploads/namaste-a-vitej.png)
 
 _Jóga navrací ke kořenům, je to cesta, která nám ukazuje naše vnitřní Já a duši v celistvosti a tuto celistvost Vám chci na mých hodinách předat s pokorou a úctou ke každému z Vás._
 
@@ -15,7 +12,7 @@ _Jóga navrací ke kořenům, je to cesta, která nám ukazuje naše vnitřní J
 
 ### **Jógový pobyt 17 - 19.3.2023:**
 
-[https://docs.google.com/document/d/1BPOKJMSLYy7LzVkIBwqeI_h54dUV8vTQzn19M3L9clU/edit?usp=sharing](https://docs.google.com/document/d/1BPOKJMSLYy7LzVkIBwqeI_h54dUV8vTQzn19M3L9clU/edit?usp=sharing "https://docs.google.com/document/d/1BPOKJMSLYy7LzVkIBwqeI_h54dUV8vTQzn19M3L9clU/edit?usp=sharing") poslední volný pokoj 
+[https://docs.google.com/document/d/1BPOKJMSLYy7LzVkIBwqeI_h54dUV8vTQzn19M3L9clU/edit?usp=sharing](https://docs.google.com/document/d/1BPOKJMSLYy7LzVkIBwqeI_h54dUV8vTQzn19M3L9clU/edit?usp=sharing "https://docs.google.com/document/d/1BPOKJMSLYy7LzVkIBwqeI_h54dUV8vTQzn19M3L9clU/edit?usp=sharing") poslední volný pokoj
 
 **Již proběhlo:**
 
