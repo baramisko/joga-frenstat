@@ -3,15 +3,12 @@ title: O lektorce
 layout: page
 
 ---
-**_Navštivte můj nádherný E shop s aromaterapií zde : www.selafee.cz_**
 
-Jmenuji se Barbora
+Jmenuji se Bára
 
 _Přála bych si, abyste u mne nalezli to , co vyzařuje mé srdce a co s láskou předávám dál._
 
 _Intenzivně jóguji a věnuji se józe od roku 2014_
-
-![](/uploads/img_20220127_154326_900.jpg)
 
 _Celý život kroužím okolo vůní, energií, péče o těla a ducha a tak jsem po letech v sociálních službách, práce s dětmi, lidmi, se závislými na různých vnějších vjemů opustila instituty a vrhla se do vlastního světa._
 
@@ -36,8 +33,6 @@ _Neustálá praxe, studium a touha po lepším životě pro sebe i ostatní je m
 _Momentálně se věnuji spíše prapůvodní józe, rekondiční józe, meditaci v pohybu a naslouchání svého těla, odráží se to i v hloubce lekcí, oba směry zdokonaluji praxí samotnou tak pod vedením učitelů._
 
 _Vzdělání se v oboru neberu skokově dle kurzů ale především celoživotně a komplexně. Jestliže jsem absolvovala kurz Hatha Yoga,neznamená to nutně,že jsem lektorem Hatha Yoga, velice si vážím sebevzdělání a nespím na vavřínech :)_
-
-![](/uploads/IMG_20190704_104009_457-2.jpg)
 
 _Inspirací na mé cestě je Srí Sv. Gitanánda, díky kterému se sebevzdělávám denně řadu let a je mi neustále obrovským darem, dále je to pan_  [_Srí Chinmoy_](https://cs.wikipedia.org/wiki/%C5%A0r%C3%AD_%C4%8Cinmoj)_. Dále Yogananda, Védy, Upanišady, pan Eduard Tomáš...._
 
