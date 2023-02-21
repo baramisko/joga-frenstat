@@ -3,6 +3,7 @@ title: O lektorce
 layout: page
 
 ---
+Nabídku veškerých mých služeb včetně terapií najdete v sekci ,ceník,
 
 Jmenuji se Bára
 
