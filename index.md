@@ -3,31 +3,6 @@ layout: page
 title: Vítejte
 
 ---
-
 ![](/uploads/namaste-a-vitej.png)
 
 _Jóga navrací ke kořenům, je to cesta, která nám ukazuje naše vnitřní Já a duši v celistvosti a tuto celistvost Vám chci na mých hodinách předat s pokorou a úctou ke každému z Vás._
-
-**Aktuálně nás čeká:**
-
-### **Jógový pobyt 17 - 19.3.2023:**
-
-[https://docs.google.com/document/d/1BPOKJMSLYy7LzVkIBwqeI_h54dUV8vTQzn19M3L9clU/edit?usp=sharing](https://docs.google.com/document/d/1BPOKJMSLYy7LzVkIBwqeI_h54dUV8vTQzn19M3L9clU/edit?usp=sharing "https://docs.google.com/document/d/1BPOKJMSLYy7LzVkIBwqeI_h54dUV8vTQzn19M3L9clU/edit?usp=sharing") poslední volný pokoj
-
-**Již proběhlo:**
-
-![](/uploads/page0001-2.jpg)
-
-Před- Vánoční prodloužená lekce jógy, pátek 16.12. od 17:15, více info sms nebo mailem, počet míst je omezen, zbývá aktuálně 5 volných míst :)![](/uploads/vanocni-prodlouzena-lekce-jogy-page0001.jpg)
-
-Pobyt v Listopadu v horách, jógový a meditační pobyt :
-
-[https://docs.google.com/document/d/1uuCp5LlBjAlAXs29-YV7WlfTS1r-Cw6s-l8erwDTdyk/edit?usp=sharing](https://docs.google.com/document/d/1uuCp5LlBjAlAXs29-YV7WlfTS1r-Cw6s-l8erwDTdyk/edit?usp=sharing "https://docs.google.com/document/d/1uuCp5LlBjAlAXs29-YV7WlfTS1r-Cw6s-l8erwDTdyk/edit?usp=sharing")
-
-![](/uploads/harmonizace-a-zvukomeditace-kristalovymi-misami-page0001.jpg)
-
-**Kapacita je naplněna, příští termín bude opět zde, děkuji!**
-
-_23.9. v pátek od 17:30, na nádherný den plný rovnodennosti. Poslední volná místa._
-
-![](/uploads/meditace-zvukem-page0001mail.jpg)
