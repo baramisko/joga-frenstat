@@ -3,13 +3,15 @@ title: Ceník
 layout: page
 
 ---
-**Lekce jógy** 
+**Lekce jógy**
 
 _jednorázově tzn. nejste v kurzu **250,** -Kč_
 
-Kurz měsíčně 
+Kurz měsíčně
 
- **_180,-_**  _Kč **x počet dní** v měsíci daném kurzu/ vždy se platí dopředu s možností náhrady kdykoli v roce v jiném dni, kurzovné je nevratné, lze za sebe najít náhradu, platí se celá částka předem_
+ **_200,-/pondělí (lekce je delší)_** ,**_180,-/čtvrtek_** _Kč **x počet dní** v měsíci daném kurzu/ vždy se platí dopředu s možností náhrady kdykoli v roce v jiném dni, kurzovné je nevratné, lze za sebe najít náhradu, platí se celá částka předem_
+
+Kurz Ashtanga jógy od 4.4. do 27.6. - 13 lekcí/**2500,-**
 
 _Individuální lekce jógy na míru, včetně relaxace nebo meditace 75´ **1000,-** Kč_
 
@@ -17,11 +19,11 @@ _Individuální lekce jógy na míru, včetně relaxace nebo meditace 75´ **100
 
 _zahrnuje reflexní terapii, uvolňovací techniky měkké, rehabilitace lymfy a meridánů, masáž je rovněž velmi uvolňující pro kloubní aparát a svaly, po sportu, porodu aj._  **90 ´ 1200,-**
 
-**Terapie duše** 
+**Terapie duše**
 
 Vycházím z principu svého vzdělání a dalších kurzů v rámci bývalého zaměstnání a nalezení nových technik. Terapie probíhá celostně tzn. principem je práce s tělem , duší, rodinnými vazbami a bloky, práce s čakrami , občas aromaterapií a práce s dechem.
 
- Terapie je velmi individuální, protože esence bytosti je jedinečná, pokaždé pracuji jinak avšak dohromady tvoříme společně Vaši lepší a harmoničtější cestu životem.
+Terapie je velmi individuální, protože esence bytosti je jedinečná, pokaždé pracuji jinak avšak dohromady tvoříme společně Vaši lepší a harmoničtější cestu životem.
 
 Někdy se dostaneme do minulosti, někdy řešíme neplodnost, někdy problémy s dětmi, s astrálním světem, psychospirituální krizí, poruchy příjmu potravy, ztracení osobnosti, ale i bolesti fyzické, kde ani lékaři nepomáhají, pracuji i se zvířaty i s dětmi.
 
@@ -33,13 +35,13 @@ Cena terapie je **1000,- Kč** první hodina a čtvrt/ **200,-** každá půl ho
 
 **Harmonizace zvukem pro jednotlivce, nebo skupiny**
 
-Léčivá harmonizace křišťálovými mísami, šamanským bubnem, nebo chřestidlem, koshi zvonečky, jogínské mantry. 
+Léčivá harmonizace křišťálovými mísami, šamanským bubnem, nebo chřestidlem, koshi zvonečky, jogínské mantry.
 
 Pořádám pravidelně setkání. Stačí sledovat web.
 
-Objednat si však můžete individuální harmonizaci nebo pro skupinu. 
+Objednat si však můžete individuální harmonizaci nebo pro skupinu.
 
-Individuální cena je **1200,-** / hodina 
+Individuální cena je **1200,-** / hodina
 
 Skupina podle počtu osob po domluvě v rozmezí od **250,- 450,-**/ osoba
 
