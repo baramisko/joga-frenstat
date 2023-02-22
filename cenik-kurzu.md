@@ -59,4 +59,6 @@ _Ayurvédská masáž a techniky - škola Ayurvédy Dr.Mazala, Krkonoše_
 
 _Meditace a fasciální yoga,rituály,Spinal Yoga - Dambar Pan, Nepál 1 měsíc intenzivně_
 
-_K citlivosti pro komunikaci a neodsuzování jakéhokoliv problému tělesné roviny či duševní mi částečně pomohlo studium Sociálních věd a psychologie v Ostravě, z kurzů po studiích jsem absolvovala např. Psychosomatické potíže a úzkosti,problematika drogově závislých, poruchy příjmu potravy aj._
+_K citlivosti pro komunikaci a neodsuzování jakéhokoliv problému tělesné roviny či duševní mi částečně pomohlo studium Sociálních věd a psychologie v Ostravě, z kurzů po studiích jsem absolvovala např. Psychosomatické potíže a úzkosti,problematika drogově závislých, poruchy příjmu potravy, psychiatrické minimum._
+
+Pracovala jsem jako průvodce v lesní mateřské školce, jako sociální a kontaktní pracovník pro děti a mládež v nízkoprahovém zařízení, jako preventant drogově závislých, dále jako terapeut na volné noze.
