@@ -11,7 +11,7 @@ title: Workshopy a pobyty
 
 **Duben 2023**
 
-13 lekcí 2500,-, volných 7 míst aktuálně z 13 ti
+13 lekcí 2500,-, volných 8 míst aktuálně z 13 ti
 
 ![](/uploads/ahtanga-yoga.png)
 
