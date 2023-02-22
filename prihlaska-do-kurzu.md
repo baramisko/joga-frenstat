@@ -9,7 +9,7 @@ _jednorázově tzn. nejste v kurzu **250,** -Kč_
 
 Kurz měsíčně
 
- **_200,-/pondělí (lekce je delší)_** ,**_180,-/čtvrtek_** _Kč **x počet dní** v měsíci daném kurzu/ vždy se platí dopředu s možností náhrady kdykoli v roce v jiném dni, kurzovné je nevratné, lze za sebe najít náhradu, platí se celá částka předem_
+**_200,-/pondělí (lekce je delší)_** ,**_180,-/čtvrtek_** _Kč **x počet dní** v měsíci daném kurzu/ vždy se platí dopředu s možností náhrady kdykoli v roce v jiném dni, kurzovné je nevratné, lze za sebe najít náhradu, platí se celá částka předem_
 
 Kurz Ashtanga jógy od 4.4. do 27.6. - 13 lekcí/**2500,-**
 
@@ -46,5 +46,7 @@ Individuální cena je **1200,-** / hodina
 Skupina podle počtu osob po domluvě v rozmezí od **250,- 450,-**/ osoba
 
 Rituály na míru, ženské kruhy a skupinové terapie dle domluvy
+
+**_Čištění prostor - této technice se věnuji spoustu let pro informace pošlete mail- osob, energetické léčení od 2000,-/prostor, 1500,-/osoba_**
 
 **Aromaterapie** www.selafee.cz a další služby zde.
