@@ -9,6 +9,10 @@ title: Workshopy a pobyty
 
 ženský kruh 10.3.2023 lze se hlásit na [https://peckazbeskyd.reservio.com/](https://peckazbeskyd.reservio.com/ "https://peckazbeskyd.reservio.com/")
 
+**Březen 2023**
+
+![](/uploads/srdecne-vas-zveme-na-myseriozni-cestu-cakrovym-sysemem-2.png)
+
 **Duben 2023**
 
 13 lekcí 2500,-, volných 8 míst aktuálně z 13 ti
