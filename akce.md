@@ -13,7 +13,7 @@ title: Workshopy a pobyty
 
 _Čeká nás jóga, bylinná očista, meditace a napojení se na svůj čakrový systém, křiš´tálové mísy, šamanský buben, uzemnění se přes cestu vyššího Já. Těšit se na Vás budou lektorky Eva -www.jogasevou.cz a Bára_
 
-![](/uploads/srdecne-vas-zveme-na-myseriozni-cestu-cakrovym-sysemem-2.png)
+![](/uploads/srdecne-vas-zveme-na-myseriozni-cestu-cakrovym-sysemem-6.png)
 
 **Duben 2023**
 
