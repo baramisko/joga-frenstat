@@ -27,7 +27,7 @@ Vycházím z principu svého vzdělání a dalších kurzů v rámci bývalého 
 
 Terapie je velmi individuální, protože esence bytosti je jedinečná, pokaždé pracuji jinak avšak dohromady tvoříme společně Vaši lepší a harmoničtější cestu životem.
 
-Někdy se dostaneme do minulosti - regrese, někdy řešíme neplodnost, někdy problémy s dětmi-noční běsy,panické ataky ,..., psychospirituální krizí, poruchy příjmu potravy, ztracení osobnosti, ale i bolesti fyzické, kde ani lékaři nepomáhají, pracuji i se zvířaty i s dětmi.
+Někdy se dostaneme do minulosti - regrese, někdy řešíme neplodnost, někdy problémy s dětmi-noční běsy,panické ataky ,..., psychospirituální krizi, poruchy příjmu potravy, ztracení osobnosti, ale i bolesti fyzické, kde ani lékaři nepomáhají, pracuji i se zvířaty i s dětmi.
 
 Pomáhám ve věcech, kterými jsem si sama prošla a sama se vzdělala, pokud si s něčím nebudu vědět rady, přepošlu Vás ráda k jiným kolegům.
 
