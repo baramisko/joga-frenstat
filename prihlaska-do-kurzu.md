@@ -5,7 +5,7 @@ layout: page
 ---
 **Lekce jógy**
 
-_jednorázově tzn. nejste v kurzu **250,** -Kč_
+_jednorázově tzn. nejste v kurzu **220,** -Kč_
 
 Kurz měsíčně
 
