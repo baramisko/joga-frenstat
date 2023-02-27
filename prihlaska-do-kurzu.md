@@ -49,6 +49,6 @@ Skupina podle počtu osob po domluvě v rozmezí od **250,- 450,-**/ osoba
 
 Rituály na míru, ženské kruhy a skupinové terapie dle domluvy
 
-**_Čištění prostor - této technice se věnuji spoustu let pro informace pošlete mail- osob, energetické léčení od 2000,-/prostor, 1500,-/osoba_**
+**_Čištění prostor nejen od přisedlíků- této technice se věnuji spoustu let pro informace pošlete mail- osob, energetické léčení od 2000,-/prostor, 1500,-/osoba_**
 
 **Aromaterapie** www.selafee.cz a další služby zde.
