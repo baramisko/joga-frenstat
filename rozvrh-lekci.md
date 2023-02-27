@@ -5,6 +5,8 @@ layout: page
 ---
 ### **Aktuálně 2023**
 
+Pondělky se lze hlásit i začátečník, který se chce věnovat sám sobě, není třeba mít obavy, že byste nestíhali
+
 _![](/uploads/pondeli-1830-volna-4-mista.png)_
 
 ![](/uploads/ahtanga-yoga.png)
