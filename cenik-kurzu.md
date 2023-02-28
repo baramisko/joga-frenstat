@@ -5,6 +5,14 @@ layout: page
 ---
 Nabídku veškerých mých služeb včetně terapií najdete v sekci ,ceník,
 
+Můj příběh z vlastní terapie do pomoci druhým začal již v ranném věku, kdy mne doprovázely noční běsy a můry a otevíraly se mi životy, které jsem nechápala. Tehdy mi hodně pomohlo okolo 14 ti let buddhistické a tibetské učení a také zkoumání svých předků a kořenů. Proč se mi to děje a na co mne to připravuje jsem pochopila až v průběhu života.
+
+Ne všechny ,,zlé,, věci jsou zlé.
+
+Prošla jsem si sebedestrukčním programem Anorexie, nepochopením, co tady na této planetě dělám a proč zde jsem.
+
+Na několik let jsem žila jako běžný adolescent a mladý dospělý, než se můj vesmír, má duše zase ohlásili. Přišla i velká asi roční psychospirituální krize, únavový syndrom a vyhoření a to přestože, nebo možná právě proto, že jsem již byla na cestě osobního rozvoje , procházela jsem terapiemi
+
 Jmenuji se Bára
 
 _Přála bych si, abyste u mne nalezli to , co vyzařuje mé srdce a co s láskou předávám dál._
