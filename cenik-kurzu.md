@@ -73,4 +73,4 @@ Pracovala jsem jako průvodce v lesní mateřské školce, jako sociální a kon
 
 **Nenechte se na internet zmást lacinými ezo řečmi, ani já ani nikdo , kdo chodí na této planetě není zcela osvícen. Můžeme však společně růst a učit se, léčit. Bude mi ctí pokud budete chtít procházet tyto cesty a zkoušky se mnou.**
 
-**Mým darem nedarem je úmění rozpoznat a identifikovat problém duše, těla a mysli, najít cestu ven z bolesti a**
+**Mým darem nedarem je úmění rozpoznat a identifikovat problém duše, těla a mysli, najít cestu ven z bolesti.**
