@@ -17,7 +17,11 @@ _Čeká nás jóga, bylinná očista, meditace a napojení se na svůj čakrový
 
 **Duben 2023**
 
-13 lekcí 2500,-, volných 8 míst aktuálně z 13 ti
+**Ashtanga jóga - obsazeno**
+
+**Pondělí - 3 volná místa**
+
+**Čtvrtek - 2 volná místa**
 
 ![](/uploads/ahtanga-yoga.png)
 
