@@ -5,6 +5,12 @@ layout: page
 ---
 ### **Aktuálně 2023**
 
+**Ashtanga jóga - obsazeno**
+
+**Pondělí - 3 volná místa**
+
+**Čtvrtek - 2 volná místa**
+
 Pondělky se lze hlásit i začátečník, který se chce věnovat sám sobě, není třeba mít obavy, že byste nestíhali
 
 _![](/uploads/pondeli-1830-volna-4-mista.png)_
