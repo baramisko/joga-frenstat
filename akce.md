@@ -3,18 +3,6 @@ layout: page
 title: Workshopy a pobyty
 
 ---
-**_Jógový pobyt v horách 17 - 19.3.2023_**
-
-[https://docs.google.com/document/d/1BPOKJMSLYy7LzVkIBwqeI_h54dUV8vTQzn19M3L9clU/edit?usp=sharing](https://docs.google.com/document/d/1BPOKJMSLYy7LzVkIBwqeI_h54dUV8vTQzn19M3L9clU/edit?usp=sharing "https://docs.google.com/document/d/1BPOKJMSLYy7LzVkIBwqeI_h54dUV8vTQzn19M3L9clU/edit?usp=sharing") aktuálně jsou volné pokoje pouze na vrchní patře (starší pokoje se společným sociálním zázemím) na dotaz
-
-ženský kruh 10.3.2023 lze se hlásit na [https://peckazbeskyd.reservio.com/](https://peckazbeskyd.reservio.com/ "https://peckazbeskyd.reservio.com/")
-
-**Březen 2023**
-
-_Čeká nás jóga, bylinná očista, meditace a napojení se na svůj čakrový systém, křiš´tálové mísy, šamanský buben, uzemnění se přes cestu vyššího Já. Těšit se na Vás budou lektorky Eva -www.jogasevou.cz a Bára_
-
-![](/uploads/srdecne-vas-zveme-na-myseriozni-cestu-cakrovym-sysemem-6.png)
-
 **Duben 2023**
 
 **Ashtanga jóga - obsazeno**
@@ -30,6 +18,16 @@ _Čeká nás jóga, bylinná očista, meditace a napojení se na svůj čakrový
 ![](/uploads/2.png)
 
 #### již proběhlo :
+
+**_Jógový pobyt v horách 17 - 19.3.2023_**
+
+[https://docs.google.com/document/d/1BPOKJMSLYy7LzVkIBwqeI_h54dUV8vTQzn19M3L9clU/edit?usp=sharing](https://docs.google.com/document/d/1BPOKJMSLYy7LzVkIBwqeI_h54dUV8vTQzn19M3L9clU/edit?usp=sharing "https://docs.google.com/document/d/1BPOKJMSLYy7LzVkIBwqeI_h54dUV8vTQzn19M3L9clU/edit?usp=sharing") aktuálně jsou volné pokoje pouze na vrchní patře (starší pokoje se společným sociálním zázemím) na dotaz
+
+ženský kruh 10.3.2023 lze se hlásit na [https://peckazbeskyd.reservio.com/](https://peckazbeskyd.reservio.com/ "https://peckazbeskyd.reservio.com/")
+
+**Březen 2023**
+
+_Čeká nás jóga, bylinná očista, meditace a napojení se na svůj čakrový systém, křiš´tálové mísy, šamanský buben, uzemnění se přes cestu vyššího Já. Těšit se na Vás budou lektorky Eva -www.jogasevou.cz a Bára_![](/uploads/srdecne-vas-zveme-na-myseriozni-cestu-cakrovym-sysemem-6.png)
 
 ![](/uploads/page0001-2.jpg)
 
