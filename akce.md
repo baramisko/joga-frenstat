@@ -13,6 +13,8 @@ title: Workshopy a pobyty
 
 ![](/uploads/ahtanga-yoga.png)
 
+Kurz body Positive přesunut na Květen,datum bude zveřejněno na konci Dubna , děkuji za pochopení 
+
 ![](/uploads/1.png)
 
 ![](/uploads/2.png)
