@@ -7,9 +7,9 @@ layout: page
 
 **Ashtanga jóga - obsazeno**
 
-**Pondělí - 3 volná místa**
+**Pondělí - 4 volná místa**
 
-**Čtvrtek - 2 volná místa**
+**Čtvrtek - 3 volná místa**
 
 Pondělky se lze hlásit i začátečník, který se chce věnovat sám sobě, není třeba mít obavy, že byste nestíhali
 
