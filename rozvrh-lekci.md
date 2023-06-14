@@ -5,8 +5,6 @@ layout: page
 ---
 ### Rezervace
 
-Pondělky se lze hlásit i začátečník, který se chce věnovat sám sobě, není třeba mít obavy, že byste nestíhali
-
 <div class="reenio-iframe" data-size="auto"></div>
 <script src="https://reenio.cz/cs/GEZTENZV/widget-iframe.js" async defer></script>
 
