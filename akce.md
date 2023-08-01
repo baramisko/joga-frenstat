@@ -3,14 +3,6 @@ layout: page
 title: Workshopy a pobyty
 
 ---
-**Duben 2023**
-
-**Ashtanga jóga - obsazeno**
-
-**Pondělí - 3 volná místa**
-
-**Čtvrtek - 2 volná místa**
-
 ![](/uploads/ahtanga-yoga.png)
 
 Kurz body Positive přesunut na Květen,datum bude zveřejněno na konci Dubna , děkuji za pochopení 

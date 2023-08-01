@@ -3,17 +3,15 @@ title: Ceník
 layout: page
 
 ---
-**Lekce jógy**
+** Lekce jógy**
 
-_jednorázově tzn. nejste v kurzu **220,** -Kč_
+Cena kurzu Integral - Spiritual - 6 lekcí/70 minut - 1420 Kč více info v sekci Kurzy jógy v rezervačním systému
 
-Kurz měsíčně
+Cena kurzu Ashtanga jógy - 8 lekcí/ 70 minut - 1800 Kč
 
-**_200,-/pondělí (lekce je delší)_** ,**_180,-/čtvrtek_** _Kč **x počet dní** v měsíci daném kurzu/ vždy se platí dopředu s možností náhrady kdykoli v roce v jiném dni, kurzovné je nevratné, lze za sebe najít náhradu, platí se celá částka předem_
+Otevřená lekce ranní jógy, každou středu 200 Kč / 60 minut ( viz. rezervační systém v sekci Kurzy)
 
-Kurz Ashtanga jógy od 4.4. do 27.6. - 13 lekcí/**2500,-**
-
-_Individuální lekce jógy na míru, včetně relaxace nebo meditace 75´ **1000,-** Kč_
+Jóga každodennosti , každý čtvrtek 60 minut/měsíční platba předem 220 Kč x počet dní v daném měsíci
 
 **Aromaterapeutická masáž -Rekondiční masáž celého těla**
 
