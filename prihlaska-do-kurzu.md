@@ -3,7 +3,8 @@ title: Ceník
 layout: page
 
 ---
-** Lekce jógy**
+
+**Lekce jógy**
 
 Cena kurzu Integral - Spiritual - 6 lekcí/70 minut - 1420 Kč více info v sekci Kurzy jógy v rezervačním systému
 

@@ -5,9 +5,8 @@ layout: page
 ---
 ### Rezervace
 
-<div>
 ![](/assets/img/kurzy-podzim-2023.png)
-</div>
+
 
 <div class="reenio-iframe" data-size="auto"></div>
 <script src="https://reenio.cz/cs/GEZTENZV/widget-iframe.js" async defer></script>
