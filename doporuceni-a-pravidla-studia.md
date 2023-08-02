@@ -17,6 +17,7 @@ Kurzovné je nevratné, lze za sebe najít náhradníka, neodchozené lekce z d�
 
 Vše je o vzájemném respektu a domluvě.
 
+**_Jóga_**
 
 _Vcházíte –li do studia na lekci jógy, prosím vcházejte již ode dveří vstupních  potichu…._
 
