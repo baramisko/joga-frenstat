@@ -4,6 +4,20 @@ layout: page
 
 ---
 
+**Podmínky rezervací a storna:**
+
+
+- z otevřené lekce se lze odhlašovat z rozvrhu  12 hodin předem, poté činí storno 100% z ceny
+- z workshopu je možné se ohlásit max. 24 hodin předem
+- z kurzu je možné se odhlásit max. týden hodin předem
+
+Termín individuální lekce / jóga terapie / masáže /  terapie, lze zrušit 48 hodin předem telefonicky, 24 hodin předem si nárokuji storno poplatek 50% , posléze je třeba sezení uhradit v plné výši.
+
+Kurzovné je nevratné, lze za sebe najít náhradníka, neodchozené lekce z důvodu nemoci aj. lze nahradit podle míst v den otevřené lekce a domluvy.
+
+Vše je o vzájemném respektu a domluvě.
+
+
 _Vcházíte –li do studia na lekci jógy, prosím vcházejte již ode dveří vstupních  potichu…._
 
 _Nehlučte zbytečně…._
