@@ -3,6 +3,10 @@ layout: page
 title: Workshopy a pobyty
 
 ---
+
+V Listopadu nás čeká pobyt v horách s jógou a meditacemi
+odkaz a informace zde: https://docs.google.com/document/d/1bmjZI60xJ2luoi2mlkdkojJbF9Gut8IVuVtAySGebqs/edit?usp=sharing
+
 ![](/uploads/ahtanga-yoga.png)
 
 Kurz body Positive přesunut na Květen,datum bude zveřejněno na konci Dubna , děkuji za pochopení 
