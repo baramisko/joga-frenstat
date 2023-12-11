@@ -31,9 +31,9 @@ plugins:
 
 header_pages:
   - akce.md      
-  - rozvrh-lekci.md      
-  - cenik-kurzu.md      
-  - prihlaska-do-kurzu.md  
+  - kurzy-jogy.md      
+  - o-lektorce.md
+  - cenik.md  
   - doporuceni-a-pravidla-studia.md  
   - kontakt.md  
   
