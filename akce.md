@@ -8,7 +8,6 @@ Srdečně Vás zveme na Jógový festival
 
 ![](/uploads/festival-jogy.jpg)
 
-
 Zimní pobyt v Prosinci na Antariku a informace naleznete zde:
 [https://docs.google.com/document/d/1SJ1F9y3p6mVjLa0BQUBlLncX-4oJYgfyVSJf8Gu_jto/edit?usp=sharing](https://docs.google.com/document/d/1SJ1F9y3p6mVjLa0BQUBlLncX-4oJYgfyVSJf8Gu_jto/edit?usp=sharing)
 
@@ -22,6 +21,11 @@ Kurz body Positive přesunut na Květen,datum bude zveřejněno na konci Dubna ,
 ![](/uploads/2.png)
 
 #### již proběhlo :
+
+**_Jógový pobyt v horách Listopad 2023_**
+V Listopadu nás čeká pobyt v horách s jógou a meditacemi
+odkaz a informace zde: [https://docs.google.com/document/d/1bmjZI60xJ2luoi2mlkdkojJbF9Gut8IVuVtAySGebqs/edit?usp=sharing](https://docs.google.com/document/d/1bmjZI60xJ2luoi2mlkdkojJbF9Gut8IVuVtAySGebqs/edit?usp=sharing)
+
 
 **_Jógový pobyt v horách 17 - 19.3.2023_**
 
