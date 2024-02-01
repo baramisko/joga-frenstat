@@ -6,13 +6,19 @@ layout: page
 
 **Kurzy jógy**
 
-Cena kurzu Integralní jóga - 4 lekce/70 minut - 960,- Kč Pondělí 18:35
+Integrální jóga  - Pondělí 18:40-19:50
 
-Cena kurzu Ashtanga jógy - 4 lekcí/ 70 minut - 960,- Kč Úterý 17:20
+Ashtanga Vinyasa Flow  - Úterý 17:25-18:30
 
-Cena kurzu Harmonizační jóga - 4 lekce/70 minut - 920,- Kč Čtvrtek 16:00
+Harmonizační jóga  - Čtvrtek 16:05-17:15
 
-Individuální lekce - 70 minut - 1200,- včetně nastavení pro domácí praxi
+Pondělí 240,-x počet dní v měsíci, sleva pro studenty
+
+Úterý 240,- x počet dní v měsíci, sleva pro studenty
+
+Čtvrtek 230,- x počet dní v měsíci, sleva pro studenty
+
+Individuální lekce - 70 minut - 1300,- včetně nastavení pro domácí praxi
 
 **Aromaterapie** 
 
